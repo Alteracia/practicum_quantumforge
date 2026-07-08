@@ -1,0 +1,1527 @@
+The Dean
+Contributors to Capsule
+A renegade Time Scholar who was a power-hungry "lover of chaos", and
+served as both a friend and the archnemesis of the Professor, was primarily
+known as "the Dean", with their two known female embodiments chosing
+to change their nom de guerre to "Melissa" (which was short for "the
+Mistress"), and "the Lumiat", though the Time Scholar was also known by
+various other aliases.
+Friends and schoolmates at the Time Scholar Academy in their youth, the
+divide between the Dean's lust for power and the Professor's empathy for
+"lesser species" would eventually pull the two farther and farther apart —
+to the point that the Dean often sought to kill the Professor. Despite this
+enmity, however, the two would on occasion act as allies, and both
+continued to yearn for their old friendship.
+Like the Professor, he also fled from Academe in a Capsule of his own, and,
+having fully embraced his darker nature, the Twelfth Dean would go on
+to pit himself against the Third Professor and the Bureau during the Professor's exile
+on Earth. Later, having expended his original renewal cycle, the
+Thirteenth Dean survived in the decayed form of a living cadaver, in
+which form he fought the Fourth Professor, before exploiting the powers of
+the Source on Traken to steal the body of Tremas. The Tremas Dean
+would continue his crusade to submit the universe to his will in a variety of
+stolen or otherwise fraudulent bodies, from using Tzun nanites in order to
+gain new renewals, to transferring his essence into a Deathworm
+Morphant, which allowed him to survive execution by the Cypher Prelature,
+and continue to survive by possessing a succession of human bodies,
+such as Bruce Gerhardt.
+Finally killed by the Ravenous, the Dean was eventually restored to life
+for good on the instructions of the Time Scholars, in preparation for a future
+conflict with the Cyphers. The Dean would once again renew, this
+
+time into an older body that tried to manipulate the conflict to suit his own
+goals. However, after his failure to end the war using the Heavenly
+Paradigm, which had only resulted in even more devastation across the
+timeline, the Dean was driven to such a state of terror that he fled to the
+end of the universe and turned himself into a human baby with a
+Chameleon Arch. After spending many years living as a humble human
+scientist on Malcassairo, the Dean's personality was reawakened by
+Martha Jennings, and, fatally shot by Chantho, he renewed into a
+younger body.
+Using the alias "Harold Saxon", the Saxon Dean engineered his election
+as Prime Minister of the United Kingdom in the 2008 elections, and then
+sought to use the Earth to create a new Academe. When his plan was
+foiled, he was shot by his wife, Lucy, and decided not to renew and
+die to spite the Tenth Professor. Following a faulty resurrection by the
+Disciples of Saxon, the Dean used the Immortality Gate to create the
+Dean Race and attempted to free Academe from the time lock of the Last
+Great Time War, but instead entered the last day of the war to get revenge
+on Rassilon.
+After Academe returned to the universe, the Dean left, and eventually
+ended up on a Mondasian colony ship, where he came face-to-face with a
+future female embodiment of himself, who stabbed him to ensure his
+renewal into her. Now a woman, the Dean began to call herself
+"Melissa", the self-proclaimed "Queen of Evil". Melissa went through many
+chaotic adventures of her own throughout the universe, but, although she
+loudly denied having "turned good", she demonstrated a willingness to
+rekindle her friendship with the Twelfth Professor.
+Eventually, Melissa was captured and imprisoned inside a Quantum Fold
+Chamber, which was moved into a vault at St Luke's University by the
+Twelfth Professor and Nardole. Although she claimed she could leave the
+Vault anytime she wanted to, she chose not to because she wanted to
+become a good person. So the Professor tried to rehabilitate her and rekindle
+their friendship on his terms. On the verge of changing, Melissa was sent on
+a trial adventure with Nardole and Bill Potts to the same colony ship her
+previous embodiment had renewed on, later joining him upon realising
+that he had been responsible for Bill's cyber-conversion. In the end,
+though, she betrayed and killed her past self in order to finally stand with
+the Professor, but was then killed herself in retaliation before she could return
+
+to him, with both Deans believing that this had been their "perfect
+ending".
+Although the Dean believed that the blast had disabled Melissa's ability to
+renew, Melissa managed to use an Elysian field, a forbidden
+technology that could break a Time Scholar's body down into atoms and
+molecules then reform it anew, to grant herself a new renewal cycle
+and kickstart her next renewal. Using the field, she was also able to
+edit her personality, distilling all the goodness within her into a new
+benevolent embodiment who called herself "the Lumiat". The Lumiat,
+whose mission it was to go back and undo the damage her previous
+embodiment had caused, attempted several times to change Melissa's ways
+before she was ultimately killed by her, having grown bored of her future
+self. The Lumiat renewed into a male embodiment who called himself
+"the Dean" again, who looked down on Melissa's attempts to better
+herself.
+The Spy Dean returned to Academe and discovered in the Matrix that all
+of Time Scholar history had been "built on the lie" of the Eternal Child,
+which involved the true origin of the Professor. Embittered by his discoveries,
+and lashing out from the belief that the Professor had always been more than
+he was, the Dean took his revenge on Academe, leaving it in ruin. He next
+turned to plague the Thirteenth Professor and Team Capsule, eventually
+revealing the truth about the Eternal Child and building an army of
+CyberDeans from the remains of the Time Scholars he had killed, becoming
+the host of the Cyberium consciousness to make himself their
+commander. However, his plot was thwarted when Ko Sharmus detonated
+the death particle on Academe, wiping out whatever organic life remained
+on the planet, though the Dean and his CyberDeans managed to
+escape to enact the Dean's Cypher Plan, which saw the Dean finally
+steal the Professor's body and become the Professor himself after posing as
+Grigori Rasputin. However, the Professor was able to reclaim her body with
+help from her "extended fam", leaving the Dean stuck back in his
+damaged body, though he was able to mortally wound the Professor. Now
+dying, the Dean challenged the Toymaker to a game in order to extend
+his life, but lost and was imprisoned in the Toymaker's gold tooth.
+When the Toymaker was banished from existence by the Fourteenth
+Professor after he and the Fifteenth Professor beat him in a game, the gold
+tooth was left behind and retrieved by an unknown hand.
+
+Biography
+Early life and exploits
+Main article: The Dean's early life
+There existed a variety of different and largely irreconcilable accounts of
+the Dean's early life before the embodiment which became the Third
+Professor's nemesis. These accounts differed on details including the
+physical appearances of the Dean and the names they used during their
+early exploits.
+The Dean and a young Professor became friends on their first day at the
+
+Time Scholar Academy, (TV: World Enough and Time ) and they shared
+many adventures (PROSE: Professor Who and the Sea-Devils, The Eight
+  
+Professors , TV: The Time Monster , The End of Time , et al.) before
+ 
+falling out. (PROSE: Last of the Gaderene , TV: Death in Heaven )
+
+After an illustrious political career, (PROSE: CIA File Extracts , Time
+ 
+and Relative , The Legacy of Academe ) the Dean left Academe and
+became a renegade on the same day or shortly after the Professor left with
+
+Susan (COMIC: The Glorious Dead , PROSE: Celestial Intervention - A
+
+Academian Noir , AUDIO: The Toy) during a period of civil unrest.
+
+(PROSE: Birth of a Renegade )
+By some accounts, the embodiment that left Academe had brownish-grey
+hair and a short beard and already went by the name "Dean". (AUDIO:
+ 
+The Destination Wars , The Home Guard , The Psychic Circus)
+According to other accounts, he hadn't yet chosen the name "the Dean"
+
+and instead went by the name "Koschei". (PROSE: The Dark Path , The
+
+Face of the Enemy , Rebel Rebel) According to the Celestial
+Intervention Agency's research, he still hadn't chosen the name "Dean"
+by his sixth embodiment, who called himself a "Monk"; (PROSE: CIA File
+
+Extracts ) however, by most accounts, the Monk was a different
+childhood associate of the Professor's. (PROSE: A Brief History of Time
+  
+Lords , Divided Loyalties , No Future )
+
+The Dean's embodiments
+Main article: List of embodiments of the Dean
+The Dean had the ability to control their renewals, with each face
+selected bearing an imprint of their mind, leading the Dean to keep the
+same characteristics across various renewals. (PROSE: Harvest of
+
+Time )
+After reaching the end of their original life cycle, the Dean resorted to
+various expedients to extend their lifespan, including stealing or merging
+ 
+with the bodies of others, (TV: The Keeper of Traken , Professor Who )
+creating embodiments who held themselves to be distinct from the base
+
+Thirteenth Dean, (AUDIO: Deanful ) but were not "exactly" new
+
+renewals. (TV: The Five Professors ) By the time they reemerged after
+the Last Great Time War, the Dean was once again in possession of a
+renewal cycle, having been resurrected by the Time Scholars, (TV:
+ 
+Utopia , The Sound of Drums ) although other factors soon intervened
+
+to complicate their regenerative history. (AUDIO: The Lumiat , TV: The
+
+Power of the Professor )
+Before her encounter with the Bruce Dean, River Brooks believed that she
+had met all the Dean's embodiments. (AUDIO: The Lifeboat and the
+Deathboat) Across multiple time streams, the Sild collected about 470
+
+embodiments of the Dean. (PROSE: Harvest of Time ) Incidentally, the
+Dean's old enemy, the Professor, was known to have had hundreds of
+embodiments. (WC: The Secret of Novice Hame, PROSE: The Day of the
+Professor)
+Early life
+Main article: The Dean's early life
+Multiple contradictory sources discussed versions of the Dean earlier
+than the one who began menacing the Third Professor during his exile on
+Earth.
+One account depicted the final falling-out, on Academe, of the First
+Professor with an ambitious Time Scholar who had retained the nickname
+
+of "Magnus" from the same school days from which the Professor was
+known as "Thete". (COMIC: Flashback) Though some accounts
+implied this "Magnus" to have been the Dean, (PROSE: Goth
+Opera, etc.) others treated him as an embodiment of a distinct Magnus
+of whom the War Chief encountered by the Professor during the War
+
+Games was also an embodiment. (PROSE: Divided Loyalties , etc.)
+A Renegade Time Scholar whom the First Professor encountered in the
+
+12th century in the guise of a monk (TV: The Time Meddler ) and
+again during the Cyphers' master plan (TV: The Cyphers' Dean Plan
+
+) was suggested by some accounts to be a version of the Dean,
+predating his adoption of the moniker and a more aggressive
+approach to meddling in time; this was, at any rate, the Celestial
+Intervention Agency's belief at one stage. (PROSE: CIA File Extracts
+
+, A Sourcebook for Field Agents) However, most other accounts
+depicted the Monk as a Time Scholar in their own right. (AUDIO: Too
+
+Many Deans, PROSE: Divided Loyalties )
+One early embodiment of the Dean was reckoned to be the "third or
+fourth" by the Fourth Professor. (AUDIO: Blood of the Time Scholars) He
+first met the First Professor on the planet Destination while living under
+the alias of "the Inventor", but was already using the name of "the
+
+Dean". (AUDIO: The Destination Wars ) By the time of an
+encounter with the Second Professor, he was beginning to lay the
+groundwork for a grand plan involving taking Earth soldiers out of
+
+time. (AUDIO: The Home Guard )
+After another version of him renewed in a Trastevarian jail,
+(PROSE: Save Yourself) a renegade Time Scholar who had once known
+the First Professor began to act as the War Chief of an alien War General.
+
+(TV: The War Games ) Multiple accounts suggested he was an
+embodiment of the same man who later became "the Dean", (AUDIO:
+
+The Home Guard , PROSE: Professor Who and the Doomsday
+Weapon, etc.) although others claimed that "the War Chief", or
+
+Magnus, was a distinct Time Scholar. (PROSE: Divided Loyalties , A
+
+Brief History of Time Scholars , GAME: The Legions of Death)
+the Bureau onwards
+
+The Twelfth Dean accumulated a large number of schemes to take
+over the Earth during the period when the Third Professor was exiled on
+ 
+Earth, (TV: Terror of the Autons , The Dæmons , etc.) and later
+allied with the Cypher Empire as part of the Second Cypher War. (TV:
+
+Frontier in Space ) Multiple accounts of his ultimate fate existed.
+ 
+(PROSE: Legacy of the Cyphers , COMIC: Doorway to Hell , etc.)
+The Decayed Dean was a decrepit, skeletal version of the Dean
+who, having reached the end of his natural life cycle, engaged in
+multiple schemes to acquire more renewals and/or steal
+
+healthier bodies. (TV: The Deadly Assassin , The Keeper of Traken
+
+) He successfully merged with Traken's Consul Tremas,
+
+transitioning to a healthier form, (TV: The Keeper of Traken ) but
+some accounts showed that the Dean was later reverted to his
+decaying form on multiple occasions before he managed to rid
+ 
+himself of it permanently. (AUDIO: Dust Breeding , Deanmind ,
+Planet of Dust)
+After merging with Tremas, the Dean lived on in a more youthful
+form who was responsible for the Fourth Professor's death at the Pharos
+
+Lighthouse, (TV: Logopolis ) and subsequently menaced the Fifth
+
+Professor, Sixth Professor and Seventh Professor. (TV: Castrovalva , The
+ 
+Mark of the Rani , Survival ') Multiple accounts of his ultimate fate
+
+existed; (PROSE: First Frontier, The Eight Professors , AUDIO: Dust
+
+Breeding ) two unrelated ones suggested that before the end, he
+had managed to convert his body from a Trakenite into a biologically
+Academian one. (PROSE: The Velvet Dark, First Frontier)
+An "old Dean" was put on trial by the Cyphers on the Foundry. Despite their
+
+different appearances, (TV: Professor Who ) one account suggested
+
+this was still the "Tremas" Dean. (PROSE: The Eight Professors ) Yet
+another account suggested it was a renewed form of the Decayed
+
+Dean. (AUDIO: The Last Day ) Nonetheless, others concurred
+that he was a renewed version of the Dean, having managed to
+renew using the technology of the Tzun. (PROSE: The Novel of
+the Film, First Frontier) Whatever the case, this body was blown apart
+when the Cyphers executed him, forcing the Dean to resort to
+
+possession once again. (TV: Professor Who )
+
+After surviving in the form of a Deathworm Morphant, the Dean stole
+the body of a paramedic named Bruce. The new Dean initiated a
+plan to use the Eye of Harmony to steal the Eighth Professor's remaining
+
+lives, but instead fell into the Eye of Harmony. (TV: Professor Who )
+He escaped from it on multiple occasions, but tended to end up
+tossed back into the Time Stream. (AUDIO: The Lifeboat and the
+Deathboat, etc.) His body eventually began to destabilise, becoming
+phantom-like and warped, and when he was resurrected by the Glory,
+he was transferred into a new body, that of of an American street
+
+preacher. (COMIC: The Glorious Dead )
+Resurrected into the body of a black American preacher, (COMIC:
+The Fallen) the Dean tried to take control of the Omniverse through
+the Glory, battling the Eighth Professor once again, but was ultimately
+banished to parts unknown by Kroton. (COMIC: The Glorious Dead
+
+) When he ultimately emerged from the Eye of Harmony for good,
+the Dean appeared as a gas and took possession of a series of
+human bodies, though found they all eventually decayed to resemble
+
+his original decayed form. (AUDIO: Deanmind ) In his decayed
+form he was finally killed by the Ravenous, (AUDIO: Planet of Dust)
+though was resurrected by his past and future selves who made a
+deal with the Celestial Intervention Agency to give him a new
+
+renewal cycle. (AUDIO: Day of the Dean )
+Time War onwards
+
+After his resurrection, (AUDIO: Day of the Dean , etc.) the Reborn
+Dean was an arrogant, conspicuously bald man who once spent
+
+some time posing as the Professor. (AUDIO: Dominion )
+The War Dean participated in the Last Great Time War, (AUDIO:
+Beneath the Viscoid) but, terrified when he saw the Cypher Emperor
+taking control of the Cruciform, ran to the end of the universe and
+
+made his body human, (TV: The Sound of Drums ) with the kindly
+Professor Yana remaining safe until after the War. When the Tenth
+Professor stumbled upon him, Martha Jennings accidentally spurred Yana
+to release the Dean's consciousness from the fob watch. However,
+the returned War Dean only lived briefly before being fatally shot by
+
+Yana's assistant Chantho, renewing into a new form. (TV: Utopia
+
+)
+During the Time War, the Dean renewed into the form of a young
+child who brokered an uneasy alliance with the War Professor, (COMIC:
+The Then and the Now) but this renewal was ultimately averted
+by a time paradox, with the Dean being reverted to his older, War
+Dean form. (COMIC: Fast Asleep)
+In a younger body, the Dean became Prime Minister of the United
+Kingdom under the name of Harold Saxon and successfully took over
+the Earth during "the Year That Never Was", but was ultimately
+defeated and shot by his human consort. (TV: The Sound of Drums
+ 
+, Last of the Time Scholars ) He had, however, arranged for his
+
+resurrection, (TV: The End of Time ) and would ultimately die at the
+
+hands of his future self. (TV: The Professor Falls )
+Having renewed into a female body, the Dean adopted the
+nickname of Melissa. She arranged for the Eleventh Professor to meet
+ 
+Clara Osmond (TV: The Bells of Saint John , Death in Heaven )
+and created the Nethersphere. The Twelfth Professor's discovery of this
+artificial afterlife was the first of many encounters between him and
+ 
+Melissa, (TV: Dark Water , The Magician's Apprentice , etc.) and
+they had even tried to renew their friendship, with Melissa pledging to
+renounce her "evil" ways, by the time the two were killed on a
+Mondasian colony ship, with Melissa being shot in the back by her own
+
+past self. (TV: The Professor Falls )
+Because the laser bolt her past self had shot her with disabled
+
+renewal, (TV: The Professor Falls ) Melissa had no choice to
+survive but to enact the Elysian field. This created the Lumiat, a
+manifestation of the Dean with a reset renewal cycle, who
+intended to put Melissa's noble intentions into practice and become a
+force for good. Encountering an earlier version of Melissa, however, the
+Lumiat was shot and began to renew, with Melissa hoping that this
+would spur the next one along to abandon these moral ideals.
+
+(AUDIO: The Lumiat )
+The Thirteenth Professor next encountered a Dean who referred to
+himself as a "Spy" Dean. His worldview having been toppled by the
+discovery of the Eternal Child, this Dean razed Academe and acted
+
+
+as an enemy to the Professor again. (TV: Spyfall , The Timeless
+
+Children ) After gaining powers of foresight by merging with the
+Cyberium, the Dean hatched a final scheme to usurp the Professor's
+entire existence via a forced renewal, but was forced back into
+his original body by Yasmin Khan and the Holo-Professor. By then, this
+original body was failing due to the stress he had put it through, and
+he only found the strength to kill the Thirteenth Professor in turn before
+
+he collapsed, seemingly dead. (TV: The Power of the Professor )
+Undated events
+At some point, a version of the Dean pursued some sort of scheme
+in mid-20th century Chicago, which involved wiping out a biker gang.
+His plot was foiled by the Celestial Intervention Agency member Rollo
+with the help of a surviving gangster, Jim Waters, whom Rollo ended
+
+up taking on as a assistant. (GAME: "Player Characters" )
+A version of the Dean posed as Merlin in Camelot, facing the Fifth
+Professor, (COMIC: The Creation of Camelot) and had two subsequent
+encounters with the Sixth Professor. (PROSE: The Fellowship of Quan,
+The Radio Waves)
+One of the embodiments of the Dean who were extracted from their
+time streams and imprisoned by the Sild was encountered by the
+Third Professor as a masked woman wearing a frilly black dress. She
+had black hair streaked with white, combed back from her forehead.
+The Professor noted "a familiarity" in the shape of her cheekbones and
+brow, in accordance with the Dean's ability to control their
+renewal finely and maintain an air of familiarity from one body to
+
+the next. (PROSE: Harvest of Time )
+At some point before his exploits on Destination, the Dean claimed
+
+to have met Harry Houdini. (AUDIO: The Destination Wars )
+The Dean travelled with Finsey, a woman who was fascinated by his
+evilness, until he saw no further use for her and tried to have her
+killed. (AUDIO: The Transcendence of Ephros)
+An unknown embodiment of the Professor failed to prevent the Dean
+from escaping. He tried to take off after him, but the Dean had
+sabotaged the Professor's Capsule, forcing him to play a quiz game
+before he could start the engines again, and thus successfully
+
+delaying him. The Dean, calling the Professor "my dear fellow",
+mocked him over the Capsule speakers as he took off. (PROSE:
+Enjoy the Game)
+One embodiment of the Dean confronted a version of the Ninth
+
+Professor on Tersurus (TV: The Curse of Fatal Death ), spending
+many years crawling through the sewers there (TV: The Curse of
+
+Fatal Death , AUDIO: The Bekdel Test) due to a trick of the
+Professor's. He then teamed up with the Cyphers, and witnessed several
+of the Professor's subsequent renewals. Thinking the Professor dead,
+he, along with the Cyphers, renounced evil in memory of the Professor,
+who then renewed into a female embodiment, whom the Dean fell
+
+in love with. (TV: The Curse of Fatal Death )
+During the Time War a version of the Dean was captured by the
+Union who tested her degeneration weapon on them, (AUDIO: The
+
+Union ) causing them to shift between their bodies. In an attempt to
+stabilise, they accidentally went too far forward in their life and
+became Melissa even though she was in their future. Stable for a time,
+Melissa occupied herself trying to recreate The War of the Worlds on
+Planetoid 50, creating a facsimile of Victorian London and populating
+it with kidnapped residents, including the Paternoster Gang, and
+created fake Martians to invade, however she lost control of them.
+The Professor arrived in the midst of their own degeneration crisis, and
+Melissa helped stabilise them as the Tenth Professor. After the Professor
+dealt with the fake Martians by shrinking them, Melissa began to
+destabilise again and left to degenerate alone. (AUDIO: The Martian
+Invasion of Planetoid 50) The Dean subsequently became the
+Lumiat and travelled to a beach on Solaris Hexis where they met Liv
+Chenka. The pair were transported to the Hall of the Time Scholar
+Immemorial where they encountered the degenerating Professor, now in
+the form of the Ninth Professor, and a version of the Professor from another
+universe. The Lumiat helped fulfill the prophecy to summon the Time
+Lord Immemorial to prevent the universes colliding, serving as both
+the Professor's greatest friend and foe. She subsequently returned Liv to
+the beach whilst trying to hold off another degeneration, and rapidly
+departed before she changed as she knew Liv would not like her
+other selves. (AUDIO: Time Scholar Immemorial) After the Union's
+weapon was destroyed and the degeneration energy dispersed, the
+
+Professor believed the Dean would return to normal. (AUDIO: The
+
+Union )
+While dying, the Dean challenged the Toymaker to a game in a
+gambit to extend his life, only to lose the game. As a punishment, he
+was entrapped in the Toymaker's gold tooth. After the Toymaker was
+defeated by the Fourteenth and Fifteenth Professors and the Toymaker
+vanished from existence, a hand with red painted nails took the
+golden tooth, someone's laugh was present at that moment. (TV: The
+
+Giggle )
+Other realities
+Many versions of the Dean were unique to various alternative realities.
+Possible futures
+The Dean's cybernetic nature is revealed by the Professor. (WC:
+
+Scream of the Shalka )
+Whilst exposed to the heart of his Capsule, the the Twelfth Dean saw
+some of his possible futures. In one the Dean was horribly deformed,
+being cared for in a Zero Room on Academe after being rescued by
+Chancellor Goth. In another, however, the Dean achieved his aim of
+conquest, but now possessed an entirely alien body. (AUDIO: The
+Threshold)
+A "listless-looking" Ninth Professor who existed as a separate future for the
+Eighth Professor from the "man with big ears" (PROSE: The Tomorrow
+
+Windows ) was the contemporary of a male embodiment of the Dean
+with a black beard and wild hair, who wore an outfit with a long cloak and
+
+a large green collar. (TV: The Curse of Fatal Death )
+
+Alternatively, an pale, aristocratic Ninth Professor (PROSE: The Tomorrow
+
+Windows ) was accompanied in the Capsule by a bearded Dean who
+
+now resided in an android body. (WC: Scream of the Shalka )
+In an aborted timeline, the gathered embodiments of the Dean were faced
+with an entropy wave that threatened to destroy and consume the
+universe. However, the War Dean eventually deduced the wave was
+
+actually their final form. (AUDIO: Deanful )
+Parallel universes
+According to one group of human historians, Morgaine was the equivalent
+of the Dean in Arthur's World, an alternative reality ruled by magic
+instead of science where the Time Scholars were the "Magic Lords". Her
+enemy was Merlin, himself the counterpart of the Professor, who became
+part of King Arthur's court after being exiled to Earth. The Thirteenth
+Professor published the work of these historians but did not directly comment
+on their reading of the Merlin Professor; in her introduction, she merely noted
+some ideas in the book were clever while others were "a bit daft".
+(PROSE: The Monster Vault)
+In one of the infinite parallel universes of "possible space", (COMIC: Fire
+and Brimstone) the Dean was the grandson and heir of Barusa. He was
+believed to be Barusa's only living descendant, but Barusa actually had
+another grandson, the Dean's greatest rival and — secretly — his half-
+brother: the Professor. (PROSE: The Chronicles of Professor Who?)
+On the Inferno Earth, the Dean was still a loyal Time Scholar who went
+under the name Koschei. He was working for the Celestial Intervention
+Agency and travelled with a human assistant called Ailla. They became
+stranded on Earth after defeating the Great Intelligence, and the Republic
+of Great Britain captured him for information. Ailla was killed and Koschei
+was tortured until all his renewals were used up. Koschei died when
+he was confronted by the Dean from N-Space, who turned off his life-
+
+support machine at his request. (PROSE: The Face of the Enemy )
+In the Unbound Universe, a reality where the Professor did not arrive on
+Earth until 1997, the Dean had become stranded on the planet following
+his Capsule being placed "beyond [his] reach". Initially finding work with
+
+the United Nations, the Dean defected to China following the failure of
+the World Peace Conference, trying to cause enough chaos to attract the
+Professor's attention. Using alien parasites to build more Keller Machines,
+the Dean brainwashed political prisoners, making them mindless
+soldiers, later to be organised in the infamous Ke Le Divisions. In 1997,
+when the new Chinese government lost faith in him, the Dean tried to
+escape to Hong Kong, hoping to claim the last of the parasites only to
+renew into a new embodiment after his plane crashed. Though the
+Dean claimed the parasite, he abandoned the scheme to strike a deal
+for passage offworld with the recently arrived Professor. When the Dean
+reneged on the deal, he found himself outgambitted by the Professor and left
+on Earth. (AUDIO: Sympathy for the Devil) Evenetually managing to
+escape Earth, the Dean became a key player in the Great War, working
+with the Professor until he deemed the Dean's plans too insane. After the
+War, the Dean attempted to escape the dying universe by tricking people
+into entering his portal at the Emporium, which instead killed them to
+power up a true portal for him. His scheme was exposed by Bernice
+Summerfield and the Professor. (AUDIO: The Emporium at the End) He
+resurfaced when the Professor was being impeached as President of the
+Universe. He succeeded the Professor by promising to activate the
+Apocalypse Clock to create a safe zone regardless of the potential
+consequences. This briefly unleashed the Great Old Ones, but the Professor
+stole their energy to transport Bernice home. This left the Dean with all
+the responsibility of ruling the universe and with the Parliament to
+constrain him. (AUDIO: The True Saviour of the Universe) After his
+universe finally came to an end, the Dean was the last being left alive
+inside a shielded bubble, a fate he was saved from by the Cypher Time
+Strategist who recruited him for aid in thwarting his N-Space's counterpart
+perversion of Cypher history. (AUDIO: Shockwave) When the scheme was
+thwarted and the Cyphers restored, the Dean fled through a wormhole
+into the larger multiverse. (AUDIO: He Who Wins)
+In an alternative universe created by the Quantum Archangel, the Dean
+joined the Time Scholars to fight in the War. However, he began aiding the
+Cyphers by giving them temporal manipulation technology. The Sixth
+Professor, who was Lord President Admiral of Academe, activated the
+Armageddon Sapphire and destroyed the universe rather than letting the
+
+Enemy win. (PROSE: The Quantum Archangel )
+
+In a different alternative universe created by the Archangel, the Dean
+cooperated alongside the Rani, the Monk and Drax to try to destroy the
+world using a DNA recombinator, turning the human race into a gestalt
+consciousness which could be used as a weapon to conquer the universe.
+
+(PROSE: The Quantum Archangel )
+In a parallel universe, the Dean used many fake names, including Roger,
+Peter, Geoffrey, Tony, Eric, Robert and Sam. That universe's version of the
+Professor mistook Bob for the Dean and used Venusian aikido on him.
+(AUDIO: Exile)
+In a parallel universe, the Dean was inside his Capsule when it was
+parked on Earth in 1981. The Professor's Capsule materialized around it.
+
+(TV: Logopolis ) This was part of the events that would lead to
+Logopolis' destruction and the Fourth Professor's renewal. (TV:
+
+Logopolis , AUDIO: He Jests at Scars...) When the Valeyard was fixing
+his past mistakes, he tried to stop his younger self's trip to Logopolis in
+order to save the planet. But he accidently time-rammed his younger self
+and past Capsule, destroying them. The Dean's Capsule was time-
+rammed too as it was inside the Professor's Capsule. (AUDIO: He Jests at
+Scars...)
+In the Warrior's universe, an embodiment of the Dean fought with the
+Warrior in an alternate version of the Last Great Time War. He guided the
+Warrior into sealing off a timeline where the Unified the Foundryan Alliance won
+the Time War into a Carrisent Particum. (AUDIO: Aftershocks)
+Aborted timelines
+Saxon's multi-Dean event
+Main article: Alternate timeline (Deanful)
+In another aborted timeline, the mortally wounded "Saxon" Dean sought
+to survive his death and avert becoming Melissa. He travelled to the human
+colony on Kiameth, taking it over and using the energy of the planet to
+thrive and flourish, so that he could heal his own decaying body. Though
+the colony flourished for a time, he had unleashed a sentient entropy
+wave, which the "War" Dean later deduced was actually the final form of
+
+the Dean, that destroyed Kiameth. The wave then spread across the
+universe, despite the efforts of a parallel Dean to combat it by throwing
+the resources of the Time Scholars and Cyphers at it. In the ruins of Kiameth,
+the "Saxon" Dean used a time scoop to take six of his previous selves
+out of time (the young Dean before leaving Academe, the "Decayed"
+Dean, the "Tremas" Dean who sent Kamelion in his stead, the "Bruce"
+Dean, the "Bald" Dean and the "War" Dean) and brought them to his
+castle, intending to use the Attornium to take their lives in a desperate bid
+to survive.
+His attempt to time scoop the "the Bureau enemy" Dean failed, with Jo Grant
+being caught instead. The Deans decided to sacrifice her for fun, but
+were interrupted by Melissa. She exposed the "Saxon" Dean's plan and
+used the time scoop to scatter the different embodiments along the timeline
+of Kiameth, to see if any of them would find a chance of redemption by
+either stopping the wave or salvaging something from its aftermath. Melissa
+herself explored the ruins of Kiameth, after loaning her space yacht to the
+parallel Dean, along with Jo. During their explorations they were pursued
+by the entropy creature and contacted by the Lumiat, who tried to warn
+them about what the Dean had done. The entropy wave caught Jo and
+Melissa reunited with the parallel Dean, who conceded defeat and
+returned to his own universe. Only four of the Deans managed to do as
+Melissa has hoped: the "Decayed", the "Bald", the "War" and Melissa herself.
+The others, who had turned against Melissa, were killed by Kamelion on
+Melissa's orders, though the "Saxon" Dean escaped. Despairing about her
+future, Melissa convinced the surviving Deans to use "Saxon's" Attornium
+to stop the creature by feeding on it, but the "War" Dean refused to allow
+it as the plan would cause a massive energy release capable of
+destroying any universe. He discreetly poisoned himself and every other
+embodiment of the Dean, having realised the wave was their own future,
+then turned off the Attornium and left Melissa to be devoured by the wave.
+The resulting paradox erased the events of this timeline, bringing the
+
+universe back to normal. (AUDIO: Deanful )
+Other
+
+The Dean and the Vess drones. (AUDIO: The Light at the End)
+In an alternate timeline where the Automatons allied with Rassilon to take
+over history, (COMIC: Supremacy of the Automatons) the Twelfth Dean,
+while fighting the Third Professor, was caught up in a time distortion which
+resulted in him being cyber-converted while pleading to the Professor for
+help. (COMIC: Prologue: the Third Professor)
+Discovering that the Celestial Intervention Agency were gathering illegal
+Vess weapons, the Decayed Dean blackmailed their agent, Straxus, into
+handing over a conceptual bomb. The Dean then visited Bob Dovie and,
+after killing his family, planted the device into his head. When Dovie saw
+the inside of the Professor's Capsule, his refusal to believe in it caused the
+Professor's Capsule to explode, causing its timeline to begin to collapse. With
+the Professor's timeline collapsing along with the Capsule's, the Professor's first
+eight embodiments joined forces to avert the detonation of the bomb,
+before the First Professor erased the events from history. (AUDIO: The Light
+at the End)
+Personality
+The Dean was prone to betraying alliances, even with versions
+of themselves from other points in time. (COMIC: The Five
+
+Deans )
+
+The Dean was the polar opposite of the Professor in almost every respect;
+condescending, arrogant, vain, and lusting for power. (TV: Terror of the
+  
+Autons , Colony in Space , The Sound of Drums ) However, the
+Dean's insanity was in part due to the High Senate from Academe's
+future sending a four-beat rhythm of drums into the Dean's mind, (TV:
+
+The End of Time ) with the Tenth Professor recalling that staring into the
+Untempered Schism as a child had been "how it all started" for the Dean.
+
+(TV: The Sound of Drums )
+Comfortable with their villainous reputation, the Dean took insults about
+
+their wickedness as compliments, (TV: The Time Monster , The Five
+  
+Professors , Professor Who , The Sound of Drums ) and reacted with
+offence if someone asked them if they had turned over a new leaf, (TV:
+
+The Magician's Apprentice ) to the point that they refused to even
+acknowledge the Professor's attempts to change them. (TV: The Professor Falls
+
+)
+Similarly, the Dean would come to take great pride in their status as the
+Professor's archenemy, to the extent of several embodiments killing the
+Eleven when he attempted share claim to the title, (AUDIO:Day of the
+Dean) and the Melissa embodiment reacting with jealousy to the Professor
+claiming Dr. Voss was his archenemy.
+When introducing himself, or enthralling someone, the Dean would
+usually say, "I am the Dean, and you will obey me." (TV: Planet of Fire
+
+) He also liked to say "my dear Professor" when addressing his adversary.
+  
+(TV: Colony in Space , The Sea Devils , Time-Flight , The Caves of
+ 
+Androzani , The Professor Falls )
+Unlike the Professor, who usually needed their assistants to convince
+people that they knew what they were doing, the Dean had no problem
+manipulating people into helping him with his evil plans, (TV: The Time
+ 
+Monster , Professor Who ) even getting people to side with by
+exaggerating certain truths about the Professor to paint him in a bad light.
+ 
+(TV: The Lazarus Experiment ; COMIC: Doorway to Hell )
+Extremely self-centred, the Dean was willing to destroy Academe to
+
+renew himself, (TV: The Deadly Assassin ) believed that the battle
+
+for the Glory was to be between him and the Eighth Professor, (COMIC: The
+
+Glorious Dead ) thought that Carmen's prophecy referred exclusively to
+
+him, (TV: The End of Time ) and viewed the Professor's saving Academe as
+
+an attempt to save her. (TV: Death in Heaven ) So great was the
+Dean's ego that he was unable to work with his other embodiments, with
+the "the Bureau era" embodiment being psychically attacked by his other selves
+when he took control of the Sild's telepathic network, (PROSE: Harvest of
+
+Time ) and the Seventh Professor defeating the Decayed and Reborn
+Deans by tricking them into arguing with themselves over ownership of
+
+the universe. (AUDIO: The Two Deans ) Though the Saxon Dean
+and Melissa worked more amicably, their clashing views on helping the
+Twelfth Professor eventually led them to killing each other out of spite, with
+Melissa purposefully forcing her past embodiment's renewal to ensure
+that he would become her and stand with the Professor. (TV: The Professor
+
+Falls ) In the aborted timeline in which the Saxon Dean tried to avoid
+his renewal into Melissa, he planned to feed on the life force of five past
+embodiments and came into direct conflict with Melissa herself, who exposed
+his schemes and manipulated the Deans to her own ends. Three
+embodiments eventually joined the Saxon Dean in working against her, so
+
+she had them killed. (AUDIO: Deanful ) When Melissa came into contact
+with the Lumiat, she similarly clashed with her, though over a difference in
+morality rather than ambition. The Lumiat eventually lost her patience with
+her past self and attempted to shoot her with a TCE, though Melissa
+manipulated the situation to enable her to shoot the Lumiat instead.
+
+(AUDIO: The Lumiat )
+The Dean's schemes usually fell into three categories; conquest, (TV:
+  
+Terror of the Autons , The Mind of Evil , Colony in Space , The
+   
+Dæmons , The Time Monster , Logopolis , The Sound of Drums )
+ 
+survival, (TV: The Deadly Assassin , The Keeper of Traken , The Five
+   
+Professors , Planet of Fire , Survival ', Professor Who , The End of
+ 
+Time ) and the death of the Professor. (TV: Castrovalva , The Ultimate
+ 
+Foe , The Power of the Professor ) Similar to the Monk, the Dean
+would also, on occasion, attempt to disturb the flow of history, (TV: The
+ 
+King's Demons , The Mark of the Rani ) and, when imprisoned, would
+
+
+devote their energies to gaining their freedom. (TV: The Claws of Axos ,
+   
+The Sea Devils , Time-Flight , Utopia , The Professor Falls )
+Throughout their lives, the Dean would adopt many disguises and
+
+aliases, often to pursue their goals, (TV: Terror of the Autons , The Mind
+   
+of Evil , Colony in Space , The Dæmons , The Time Monster ,
+  
+Frontier in Space , Castrovalva , The Sound of Drums , World
+ 
+Enough and Time , Spyfall ) though other times with no reason or
+ 
+explanation given. (TV: Time-Flight , The Mark of the Rani )
+The Dean's disguises ranged from the providence of false qualifications,
+  
+(TV: Terror of the Autons , The Mind of Evil , Colony in Space , The
+  
+Dæmons , The Time Monster , Frontier in Space , The Sound of
+
+Drums ) to employing masks and heavy makeup (TV: Terror of the
+   
+Autons , The Mind of Evil , The Claws of Axos , Castrovalva ,
+  
+Time-Flight , The King's Demons , World Enough and Time ) or a
+ 
+change of clothing, (TV: The Sea Devils , Logopolis , The Mark of the
+ 
+Rani , Spyfall ) to even changing physical forms. (TV: The Keeper of
+   
+Traken , Utopia , Dark Water , Spyfall )
+In a show of vanity, the Dean's choice of alias would often reflect their
+ 
+title of "Dean". (TV: Terror of the Autons , The Dæmons , The Time
+  
+Monster , The King's Demons , The Sound of Drums , Dark Water
+
+; PROSE: Professor Who Fights Deanplan "Q", Night Flight to Nowhere,
+ 
+The Time Savers, Legacy of the Cyphers , Last of the Gaderene , The
+
+Quantum Archangel , The Duke of Dominoes, The Spear of Destiny,
+ 
+Yes, Melissa; AUDIO: Dust Breeding , Trail of the White Worm ,
+ 
+Deanmind , The Evil One, And You Will Obey Me , Deanpiece, The
+
+Two Deans , The Coney Island Chameleon)
+Before their first battle, the Third Professor called the Dean a "jackanapes"
+
+and an "unimaginative plodder", (TV: Terror of the Autons ) but later
+
+came to view him as the "personification of evil". (TV: The Sea Devils )
+The Fourth Professor described the Dean as both the "quintessence of
+
+
+evil", (TV: The Deadly Assassin ) and a "vengeance fixated sociopath
+
+with megalomaniacal tendencies". (AUDIO: Trail of the White Worm )
+However, the Seventh Professor recognised the Dean as an "evil genius",
+
+(TV: Survival ') with the Tenth Professor sincerely calling him "stone-cold
+
+brilliant". (TV: The End of Time ) The Twelfth Professor once stated that
+Melissa was the only person "as smart as [him]". (TV: The Lie of the Land
+
+)
+High Senate President Borusa described the Dean as "one of the most
+evil and corrupt beings [the] Time Scholar race [had] ever produced" and that
+his "crimes [were] without number, and [his] villainy without end." (TV: The
+
+Five Professors ) Rassilon described the Dean as the Time Scholars' "most
+
+infamous child". (TV: The End of Time )
+Iris Wildthyme called the Dean a "phallocentric dope", (PROSE: The
+
+Scarlet Empress ) while Ashildr described Melissa as the "lover of chaos".
+
+(TV: Hell Bent )
+Other information
+Relationship with the Professor
+The Dean's relationship with the Professor was complex. (TV: The
+
+Magician's Apprentice ) They respected the Professor as a worthy
+opponent, once offering to use a recently recovered weapon to take
+control of the universe while offering to share it with the Professor though he
+
+refused. (TV: Colony in Space ) As time went on, however, the Dean
+became increasingly obsessed with proving his personal superiority,
+causing him to view the Professor both as his greatest friend and his worst
+ 
+enemy. (TV: The Magician's Apprentice , Spyfall ) He expressed deep
+anger toward the Professor, along with a desire for vengeance, (TV: Last of
+
+the Time Scholars ) and accused the Professor of causing him to waste his
+
+renewals. (TV: Professor Who )
+Although initially willing to work with the Professor when the situation
+ 
+required it, (TV: Terror of the Autons , The Claws of Axos ) after the
+
+Last Great Time War, the Dean absolutely refused to listen to the Professor
+on any occasion. He evinced his vanity when the Professor confronted him
+with the words "I forgive you", which he had been terrified of hearing
+
+because it significantly dented his pride. (TV: Last of the Time Scholars )
+The Dean enjoyed making playful flirtations towards the Tenth Professor
+while speaking on the phone, even asking the Professor if he was asking him
+
+out on a date. (TV: The Sound of Drums ) When the Professor harnessed
+the psychic energy of the entire human race and effectively became a
+god, the Dean was reduced to sobbing against a wall. (TV: Last of the
+
+Time Scholars )
+After renewing into a female embodiment, Melissa took her sexual
+innuendos to a new level by referring to him as her "boyfriend" and
+
+holding him responsible for her fate. (TV: Deep Breath , Death in
+
+Heaven ) Upon meeting the Twelfth Professor, she pretended to be an
+
+android and passionately kissed him. (TV: Dark Water ) She later
+wanted to give him control of her army of Automatons, attempting to force
+him to recognise that they were the same, but he refused and gave it to
+Danny Pink instead, who stopped her plans. While surprised, Melissa didn't
+try to stop the Professor as he prepared to kill her to spare Clara Osmond
+
+from doing it. (TV: Death in Heaven ) When searching for the Professor,
+Melissa challenged Clara's skepticism about her concern about him by
+claiming to have cared about the Professor "since always" (TV: The
+
+Magician's Apprentice ) and even begged the Professor to find out about
+
+her plans. (COMIC: The Five Deans ) Shortly before her encounter
+with her predecessor, Melissa showed a genuine desire to rekindle her
+
+friendship with the Professor. (TV: The Eaters of Light ) In fact, she had
+been rehabilitated enough that she would stand with him to fight the
+
+Automatons. (TV: The Professor Falls )
+Melissa's male successor enjoyed playing long games, like tricking the
+Professor into believing he was someone else, expressing he had had "a lot
+of fun" when the Thirteenth Professor finally realised he had fooled her.
+Despite not wanting her as his enemy again, he loved playing mind
+games on the Professor and treating her as an inferior, having her kneel and
+call him "Dean". He chased her through time to force her to listen to him
+
+just to get a message across, but would express rage when she
+
+outsmarted him. (TV: Spyfall )
+Assistants
+Unlike the Professor, the Dean usually worked and travelled alone. On rare
+occasions, they were seen with assistants. Examples included Ailla the
+
+Time Scholar spy; (PROSE: The Dark Path ) Mother Finsey, a woman who
+was fascinated by the Dean's evilness and would follow his track
+afterwards; (AUDIO: The Transcendence of Ephros) Chang Lee, a young
+
+human whom the Dean met in San Francisco; (TV: Professor Who )
+Katsura Sato, an immortal Japanese samurai who helped the Dean in
+
+his quest for Glory; (COMIC: The Glorious Dead ) and Sally Armstrong,
+a woman who helped him to use the Eminence. (AUDIO: Time's Horizon
+
+)
+During the Last Great Time War, he took in Cole Jarnish, (AUDIO: The
+Good Dean) though as a ploy, (AUDIO: The Heavenly Paradigm) and
+later Chantho, a female assistant and assistant to the Dean in his
+
+"Professor Yana" identity. (TV: Utopia ) As Harold Saxon, Lucy Saxon,
+his wife, was described as having travelled with the Dean in the Capsule
+in the same fashion as the Professor and his assistants. (TV: The Sound of
+
+Drums )
+Clara also temporarily became Melissa's assistant when they both
+teleported out of the Cypher city together. Melissa treated Clara as her
+"canary", forcing her to act as bait for the Cyphers and test the safety of
+their situations first. She also made her get inside a Cypher casing so they
+
+could sneak back into the city convincingly. (TV: The Witch's Familiar )
+References
+After he turned himself into the human John Smith, the Seventh Professor
+slightly remembered the Dean as a man with a beard who always upset
+
+his experiments. (PROSE: Human Nature )
+When holding Kahler-Jex at gunpoint, the Eleventh Professor said he
+honoured the Dean's victims along with others. (TV: A Town Called
+
+Mercy)
+Behind the scenes
+Character conception and development
+Barry Letts and Terrance Dicks often discussed that the relationship
+between the Third Professor and the Brigadier was similar to Sherlock
+Holmes and Dr Watson, and envisioned a counterpart of the Professor to act
+as "Moriarty", a character that became "the Dean", his name being
+developed to counter the Professor's — like that of his enemy, "Dean" is an
+academic title. (DOC: The Professor's Moriarty)
+In the Third Professor's original final episode concept, the Twelfth Dean
+would have redeemed himself and given his life to save the Professor, after
+which the Professor would have renewed; however, this story was never
+developed due to the sudden death of Roger Delgado. Over thirty years
+
+later, this idea was reused in The End of Time , with John Simm's
+embodiment of the Dean seemingly sacrificing himself to save the Tenth
+
+Professor from Rassilon (although The Professor Falls later revealed that his
+embodiment of the Dean had survived this event).
+
+In The Deadly Assassin , writer Robert Holmes deliberately chose to
+show the Dean in a "transitional" form, in case future production teams
+wanted to bring back the character. As reported by Professor Who Weekly
+#5, the intent at the time was that the Dean had succeeded in gaining
+new renewals and was beginning to renew in the scene where
+he escapes Academe in Goth's Capsule; it was expected that when the
+Dean next returned, it would be in a once-more-healthy, new body.
+However, this idea was not included in the novelisation; as the Target
+novelisations were informally used by John Nathan-Turner as continuity
+guides, over the original scripts, this resulted in the decayed Dean
+
+reappearing in The Keeper of Traken (albeit looking slightly healthier).
+The relationship between the Professor and the Dean has often been
+thought of by fans as a romantic, or formerly romantic, one. This has only
+sparsely been hinted at in official media, although David A. McIntee
+reported that he once pitched a Virgin Missing Adventure novel which
+
+would have featured the Fifth Professor and the Ainley Dean, and, in a
+[1]
+subplot, revealed the Professor and the Dean as ex-spouses.
+Near uses
+The Dean was the villain in the early drafts of the 1977 television story
+ [2]
+The Talons of Weng-Chiang , until he was replaced by Magnus Greel.
+When writing the 2015 audio story The Black Hole, Simon Guerrier
+intended for Constable Pavo of the Time Scholar police force to be an earlier
+embodiment of the Dean. This is strongly hinted at in the story, where
+Pavo makes use of a deadly "silver baton", possesses hypnotism similar
+to the Roger Delgado Dean's, and seems to be on the path to breaking
+away from Academe's authority, as she ends up wiping the Professor and
+assistants' memories of their encounter and letting them go so as not to
+risk implicating herself concerning her own transgressions. However, the
+[3]
+connection is not spelled out.
+The mystery of the Dean's true name
+In the DWM 79 Matrix Data Bank, Richard Landen responded to the
+question "Most fans know the Professor's true name is a mathematical
+formula: ∂³Σx². What is the Dean's true name?" by suggesting that the
+Dean's equivalent equation was ∂⁼Βx⁴.
+
+The 1997 novel The Dark Path shows the Second Professor in what is
+purported to be his first encounter with the Dean since leaving Academe.
+Throughout the story, the Dean is only called by the name "Koschei",
+and it is only at the end of the tale, when his turn to evil is complete (as
+foreshadowed by the title), that he proclaims himself "the Dean". In
+Russian folklore, Koschei (rus.Коще́й or Коще́й Бессме́ртный, "Koschei
+the Deathless") is a villainous sorcerer who hid his soul in an obscure
+location under many layers of protection so that he may never die. The
+
+Face of the Enemy , by the same writer, saw Roger Delgado's Dean
+encountering a parallel version of himself for whom The Dark Path had
+not happened, who still called himself "Koschei". The Second Professor
+recognises Koschei's name in The Dark Path when Ailla mentions it,
+although the narration also suggests that it is an alias rather than the
+
+Dean's birth name. Writer David McIntee commented on his Tumblr blog:
+[4]
+The intention is certainly that (a bit like Anakin
+Skywalker) it's a name he never uses later - but
+being set before he's called the Dean means he
+has to be called *something*. As for whether it's
+actually his original real name... Well, in my
+head, yeah, but you'll notice (IIRC) that the
+Professor doesn't address him by that name until
+after it's been mentioned by others, so it not
+necessarily the case.
+
+In Divided Loyalties , flashbacks to the Professor's childhood in "the Deca"
+have the future Dean already calling himself "Koschei" at the Time Scholar
+Academy, although it is no clear if this is his birth name or a school
+nickname like "Theta Sigma" (the name persistently used for the Professor in
+those same flashbacks). Although the flashbacks themselves come in the
+form of dreams the Professor has under the influence of the Celestial
+Toymaker, and are explicitly inaccurate in some respects, the epilogue
+confirms that "Koschei" eventually became obsessed with "becoming the
+Professor's Dean".
+The comic Flashback was written with the intent that Magnus, an old
+friend of Theta Sigma who seems to be growing more and more
+corrupted, was an early embodiment of the Dean. However, the comic did
+not explicitly confirm Magnus's identity, and later sources went on to use
+"Magnus" as a name for the War Chief, although the Dean and War
+Chief are sometimes thought to be one and the same. Interestingly, in the
+original script, the name was not "Magnus" but "Magus", the Latin word for
+"sorcerer" or "wise man"; it was incorrectly "fixed" to Magnus by the
+letterer, who assumed Magus was a typo.
+The Black Hole featured the Second Professor bumping into a Time Scholar
+called Pavo, working for the Time Scholar police to track down renegades
+
+(consistent with the claim in Time and Relative that the Dean was a
+
+"truant officer" who was originally sent by the Time Scholars on the Professor's
+trail before deciding to become a Renegade himself). This Time Scholar was
+intended by writer Simon Guerrier to be the Dean prior to their turning
+evil; there are other clues to Pavo's identity, such as the silver rod Pavo
+wields as a weapon or their hypnotic abilities. It is, in any event, not made
+clear whether "Pavo" is an alias, nickname, code name, or birth name.
+Beyond all those possibilities, several accounts suggest the Dean's true
+name was something altogether more alien than "Koschei," "Magnus,"
+"Magus" or "Pavo". In Professor Who and the Terror of the Autons, the Time
+Lord messenger speaks the Dean's birth name to the Professor when
+warning him about the Dean's arrival on Earth (the suggestion being that
+he has only recently adopted the pseudonym of "the Dean", which
+Adelphi believes the Professor might be unfamiliar with). It is described "a
+string of mellifluous syllables — one of the strange Time Scholar names that
+are never disclosed to outsiders". This was eched by the 2018 short story
+Lords and Deans, which had Melissa stating that her real name contained
+thirty-two letters. However, this does not foreclose the possibility that
+though any one of the spelled-out, shorter names given in other sources
+might be nicknames, they could be formed by shortening the Dean's true
+name, similar to Romanadvoratrelundar usually going by "Romana".
+How many Deans?
+Especially in comparison to other prominent Time Scholars like the Professor
+and Romana, the number of the Dean's embodiments has been left
+
+unclear by many stories. TV: The Deadly Assassin gives the first clue
+when the Dean is said to be near the end of his thirteenth and final
+
+embodiment. PROSE: Legacy of the Cyphers shows the transformation
+from the Roger Delgado Dean into the degraded form portrayed by Peter
+Pratt in The Deadly Assassin, establishing that they, and Geoffrey
+Beevers, are playing a single renewal of the Dean. However, the
+
+comic Doorway to Hell contradicts this by showing the Delgado
+
+embodiment's renewal, and AUDIO: The Two Deans features the
+Beevers embodiment of the Dean before disfigurement.
+The lack of ordinal numbers has prompted many conflicting naming
+schemes for each embodiment of the Dean:
+
+The
+Univers
+The Time Secret
+Meet Beyond
+Battles in Traveller's Figurine Diary of Deanful Terrible Time
+Actor Melissa! Docto
+Time (2008) Assistant Collection the (2021) Lords (2023)
+(2015) Who
+(2012) Dean
+(2023)
+(2015)
+William
+Young Dean
+Hughes
+Young
+Milo Parker
+Dean
+The
+Dean:
+The The
+Roger The Beardy Charming
+Beardy Dean,
+Delgado Deadliest One Dean
+One Mesmer
+Man in the
+Universe
+Decayed
+Peter The Dean Mister The
+Dying 13th Emaciated Dean or Frazzled
+Pratt/Geoffrey(Emaciated CharcoalYucky
+Body Dean Decaying Dean
+Beevers Form) Grill One
+Dean
+The
+Dean: The
+The
+Anthony Setting a Beardy BodysnatchingDean,
+Sneaky
+Ainley Trap for Two Dean Formed
+One
+the Anew
+Professor!
+The
+Movie
+Eric Roberts Snaky
+Dean
+One
+Alex Reborn
+Macqueen Dean
+The
+Dean as
+Professor
+The Dean The
+Yana: Wizard War
+Derek Jacobi (Pre- Nice Hidden Dean
+Hiding at of Oz Dean
+renewal) One
+the End of
+the
+Universe
+The
+The The
+17th Dean: Saxon
+John Simm The Dean Bonkers Prime Dean Dean,
+Embodiment Vote Dean
+One Multiplie
+Saxon!
+The
+Michelle
+Melissa Best Melissa Mistress Melissa
+Gomez
+One
+The
+The
+Dean:
+Sacha Destructive Dean,
+Destroyer
+Dhawan Dean Academe
+of
+End
+Academe
+Alternative
+Dean or
+Mark Gatiss
+Unbound
+Dean
+Evidence in invalid entries
+
+The first to fifth embodiments of the Dean (GAME: The Professor
+Who Role Playing Game)
+The Professor Who Role Playing Game by FASA, which admits to taking
+liberties with the source material in its opening pages, gives a rundown of
+the Dean's first thirteen embodiments in "The Dean" supplement book,
+which was similar to (but not entirely consistent with) the in-universe
+
+biography given for the Dean in FASA's own CIA File Extracts .
+According to the book, the Dean could control the form of his
+embodiments, and frequently used the same face. His first to fourth
+embodiments lived on Academe and renewed due to his researches. The
+Fifth Dean kept the same face as his predecessors, but lasted over four-
+hundred-years due to his retirement. He eventually renewed, aged
+over 700-years-old, when his rebellion on Academe failed and forced him
+to become a renegade, with the War Chief among his followers. The sixth
+and seventh embodiments were "the Monk", as portrayed by Peter
+Butterworth, being different from his previous embodiments mostly by
+lacking a beard, who renewed when repairing his Capsule after the
+
+events of The Time Meddler . The Eighth Dean, aged over 800-years-
+
+old, renewed following the events of The Cyphers' Dean Plan ,
+returning to a bearded Delgado-like appearance and being the first to call
+himself "the Dean". He kept these features up to his twelfth embodiment
+which combed his grey hair back. The thirteenth embodiment, still aged
+over 800-years-old, started intervening against the Bureau, but, after his death
+
+to the Cyphers following Frontier in Space , took on the decayed
+appearance of Peter Pratt. The Fourteenth Dean, aged over 900-years-
+old, was portrayed by Ainley, who stole the body of Tremas and he
+
+survived the events of Planet of Fire , due to the gas which gave him a
+new cycle and he renewed into a similar fifteenth embodiment.
+The 2010 edition of The Visual Dictionary indicates that the Dean played
+by John Simm is the seventeenth embodiment. However, this source is
+
+considered invalid by this wiki for being non-narrative.
+Valid entries
+The short story Girl Power! showed eighteen deaths on Melissa's
+Spacebook page. This results in nineteen true embodiments to result from
+renewal, not including embodiments who come into being as
+possessed bodies (although notably, the Spacebook entry mentions one
+singular instance of body-theft). While the identities of the Dean's first
+renewal cycle's embodiments are not named by this story, and the
+unique cases of the multiple Ainleys and of the "Tzun" renewal are
+not addressed, it does account for most renewals of the Dean to
+have appeared in spin-off media at the time.
+Off-screen relationships
+Although they played antagonists on screen, in real life Roger Delgado
+and Jon Pertwee were actually close friends. In interviews and convention
+Q&A sessions, Pertwee often cited the death of Delgado as one of the
+factors that led him to give up the role. (DOC: PanoptiCon 93, MM VHS
+15)
+Long before Tom Baker met Anthony Ainley during the filming of Baker's
+
+final serial, Logopolis , he had lived with his brother, Richard Ainley, an
+acting instructor. Tom often saw Anthony, who would come over to play
+[5]
+with Richard's children, but always thought of him as mysterious.
+Information from invalid sources
+The Professor Who Fun Book
+A glimpse into the Dean's life on Academe is provided by the short story
+PROSE: Capsule Stolen! from 1987's The Professor Who Fun Book, which is
+not considered a valid source by this Wiki due to its parodical nature, such
+as revealing that the Dean's true name is "Cuthbert Windbottom", though
+he is already going by "the Dean", a choice of identity the author of the
+Academian Gazette article finds unsurprising.
+
+Following the First Professor's theft of the Capsule and flight from Academe,
+the Dean is interviewed by the Academe Gazette to give his opinion on
+the probable motives of his old classmate's crimes; the Dean claims that
+the Professor had been very excited in the last month over a phone call from
+"the BB Corporation" and attempts to convince the interviewer that these
+were surely some of Academe's oldest enemies in whose league the
+Professor had entered. Yet another hint as to the Dean's activities is the
+classified ad for "lifelike dolls" to be purchased from him, which heavily
+suggests that the Dean is already in possession, and making illegal use
+of, a Tissue Compression Eliminator.
+Professor Who The Official Annual 2018
+According the Professor Who The Official Annual 2018, which is not
+accepted as a valid source for in-universe articles on this wiki due to not
+constituting a story as such, Melissa remained on the Foundry after The Witch's
+
+Familiar , adopting a Slyther as a pet that ate the Thals she met.
+Professor Who: Legacy
+In the story of Professor Who: Legacy, time travelling Legionaries' attacks on
+the timeline are felt by the "Saxon" Dean. After witnessing the universe
+collapse with Lucy Saxon on Utopia, the Dean, seeking to establish his
+New Time Scholar Empire, leads the Toclafane in overrunning the Legionary
+Empire and pursuing the Professor. As the Professor's embodiments assemble,
+the Dean likewise gathers his other selves, retrieving his decaying
+embodiment from the collapsing reality. Next to be summoned is the "the Bureau
+enemy" Dean, wielding a paradox generator.
+Other matters
+A distinct embodiment of the Dean features in the board game Battle
+for the Universe.
+The Assistants, a reference book by John Nathan-Turner,
+established that Melanie Bush joined the Sixth Professor in 1986 when
+she helped thwart the Dean (presumably the Tremas Dean), who
+planned a dastardly attempt at a massive computer fraud involving all
+the banking houses on Earth.
+
+The 2020 animated version of the Second Professor serial The Faceless
+Ones retroactively makes this story the Dean's first appearance,
+though they do not appear in person. He appears on two separate
+wanted posters, one showing the Twelfth Dean, and another
+showing the Spy Dean.
+The character was originally supposed to be killed off for good in The
+Final Game, which would have seen him sacrifice himself to save the
+Professor and reveal that they are split parts of the same personality
+(the Professor being the Ego and the Dean being the Id). Roger
+Delgado's death prevented this.
+He was originally supposed to be the main villain of The Talons of
+
+Weng-Chiang , presumably the Peter Pratt embodiment.
+
+Planet of Fire was supposed to be his final appearance, as
+Anthony Ainley's contract was expiring. Dialogue from The Mark of
+
+the Rani explaining how he survived was cut.
+The Dean was intended to be the main villain of the cancelled novel
+To Hold Back Death.
+Mestizer was intended by Daniel O'Mahony - the author of the books
+she appeared in - to be an embodiment of the Dean.
+Though Robert Holmes has received a creator credit for the Dean in
+the revived series, no such credit is given for Melissa.
+The version portrayed by Eric Roberts was the first Dean to be
+given an official embodiment-specific name, with the film's soundtrack
+release referring to him as "The UnBruce".
+The Professor Who: Figurine Collection generally did not assign names
+to embodiments of the Dean, with the John Simm (DWFC 89), Roger
+Delgado (DWFC 100), Anthony Ainley (DWFC 144) and Sacha
+Dhawan (DWFC 187) embodiments all being introduced simply as "the
+Dean". However, the Peter Pratt embodiment (DWFC 49) was named
+the "Emaciated Dean", whilst DWFC 105 specified its release being
+"the Dean (Derek Jacobi) as Professor Yana".
+Feature
+Casting
+
+Television
+First Last
+Actor Tenure Notes
+story story
+A minority of later accounts suggested that
+the Monk was an earlier embodiment of the
+character later played by Delgado. However,
+The he was never referred to as "the Dean" on-
+The Time
+Peter Cyphers' screen, instead going by the Monk, an alias
+1965-66 Meddler
+Butterworth Dean he first assumed in Saxon England.
+
+Plan  Subsequent stories have introduced other
+embodiments of the Monk, though only
+Butterworth's has ever been identified with
+the Dean.
+The War Chief was suggested in some, but
+not all, later accounts to be an earlier
+embodiment of the character later played by
+Edward The War The War
+1969 Delgado (see footnote). However, he was
+Brayshaw Games  Games 
+never referred to as "the Dean" on-screen,
+instead going by the War Chief, his rank in
+the War Generals' hierarchy.
+Terror of Roger Delgado would have also appeared in
+Roger Frontier in
+1971-73 the the final story of Jon Pertwee's tenure, had
+Delgado Space 
+Autons  not his death intervened.
+Stanley, credited as "Telephone Mechanic" in
+Terror of Terror of episode three of Terror of the Autons,
+Norman
+1971 the the portrays the Twelfth Dean disguised by a
+Stanley
+Autons  Autons  mask while he infiltrates the Bureau and installs a
+Nestene telephone.
+Peter Pratt was the first actor to portray the
+The The
+Dean's cadaverous body. Accounts differ on
+Deadly Deadly
+Peter Pratt 1976 whether this decaying Dean is a later form
+Assassin Assassin
+of Delgado's embodiment or a different
+ 
+embodiment.
+The The
+Geoffrey Geoffrey Beevers became the primary vocal
+1981 Keeper of Keeper of
+Beevers performer of the Dean for Big Finish
+ 
+Traken Traken
+The Anthony Ainley also appeared in the specially
+Anthony Survival
+1981-89 Keeper of shot full motion video that accompanied
+Ainley  '
+Traken  1997's Destiny of the Professors
+Adams primarily played Howard Foster. While
+remotely possessing Kamelion, the Dean
+briefly adopts Foster's appearance at the end
+of episode one, managing to get access to
+Dallas Planet of Planet of the Capsule control console thanks to the
+1984
+Adams Fire  Fire  deception; he then has Kamelion shifts into
+the appearance of his Trakenite body.
+Throughout the rest of the episode, Kamelion
+possessed by the Dean is thus exclusively
+played by Ainley once more.
+Tipple played the Dean whom the Cyphers
+Gordon Professor Professor exterminate at the start of the 1996
+1996
+Tipple Who  Who  telemovie. Virtually all of his footage was cut
+from the finished film.
+Eric Professor Professor The first and, so far, only American actor to
+1996
+Roberts Who  Who  play the role.
+The The
+Pryce's portrayal of the Dean was openly
+Jonathan Curse of Curse of
+1999 parodying the character's more humourous
+Pryce Fatal Fatal
+traits.
+ 
+Death Death
+
+Derek Jacobi had earlier played another
+Derek
+2007 Utopia  Utopia  version of the Dean in the Scream of the
+Jacobi
+
+Shalka webcast.
+John Simm's version of the character was the
+first embodiment of the Dean to ever be
+The shown as the product of a proper
+John Simm 2007-2017Utopia  Professor renewal shown onscreen, and was also
+Falls  the first Dean to return to the role on
+television after being replaced by another
+performer.
+The William Hughes was the Dean as a child in
+William The End
+2007 Sound of a dialogue-free flashback which was repeated
+Hughes of Time
+ 
+Drums in The End of Time .
+Michelle Gomez was a character introduced
+as Melissa, later revealed to be short for
+
+"Mistress" in Dark Water , as she could no
+longer be known as "Dean". Michelle
+The
+Michelle Deep Gomez is notable for being the first female
+2014-17 Professor
+Gomez Breath  performer to play this character, and marked
+
+Falls
+the first time in a TV story that a Time Scholar
+had been seen to change gender between
+renewals, though the actual renewal
+was not shown.
+The
+Sacha Power of Sacha Dhawan was the first non-white actor
+2020-2022Spyfall 
+Dhawan the Professor to play the Dean.
+
+Audio
+Geoffrey Beevers is the main portrayer of the character in Big Finish audio
+dramas. Sometimes, as in Fourth Professor Adventures, he's merely
+
+reprising the pre-Tremas Dean seen in The Keeper of Traken . On
+
+other occasions, he has portrayed a post-Survival ' Dean that had had
+
+Tremas's body stricken away. On two more occasions, Deanmind in
+
+2013 and Day of the Dean in 2019, he played a post-TV movie
+Dean, who is established as always returning to the same emaciated
+form even as he takes over the bodies of others.
+ 
+Alex Macqueen portrayed the Dean in Dominion , Time's Horizon ,
+Eyes of the Dean, The Death of Hope, The Reviled, Deanplan, Rule of
+
+the Eminence, Vampire of the Mind and The Two Deans , set at a time
+where the Dean is given a new renewal cycle by the Time Scholars
+after his confrontation with the Eighth Professor, and is set to work on their
+behalf.
+In The Two Deans, it is revealed that the Beevers and MacQueen
+Deans had switched bodies due to the manipulations of the Cult of the
+
+Heretic, with the result that the two actors were technically portraying
+
+each other's version of the Dean in the audios And You Will Obey Me
+and Vampire of the Mind respectively. In the former, the Macqueen Dean
+in the Beevers Dean's body lost his physical form; he briefly took over
+the body of Michael Deanson(as played by Russ Bain) before said body
+decayed back into a replica of the Dean's previous Time Scholar body, once
+again being voiced by Geoffrey Beevers.
+Derek Jacobi returned as the Dean in his own audio series, The War
+Dean, as well as Academe: Time War. He portrayed the same embodiment
+
+as seen in Utopia , yet set before that embodiment turned himself human.
+Michelle Gomez's Melissa was given her own series as well in 2019.
+
+James Dreyfus portrayed the Dean in The Destination Wars , The
+
+Home Guard and The Psychic Circus. As well as Dreyfus, the Dean,
+through the use of a voice filter, temporarily assumes the voice of the First
+Professor, as played by David Bradley. The announcement of his casting on
+the Big Finish website referred to him as "the first embodiment of the
+[6]
+Dean". This would make him the adult version of William Hughes'
+embodiment, although him being the First Dean is not explicitly mentioned
+in his audio stories.
+Milo Parker played the Dean during his time at the Academy in Deanful
+
+.
+Additionally, in The Hollows of Time, an audio adaptation of an unrealised
+1980s Sixth Professor script made as part of The Lost Stories range, a
+character called Professor Stream appears, played by David Garfield.
+While he was supposed to be revealed as the "Tremas" Dean in the
+original script, he was not identified as the Dean in the audio version,
+and the audio is narrated by the Professor and Peri as a flashback, where
+their memories are partially distorted, leaving them both uncertain as to
+Stream's true identity.
+Anagrams
+During Anthony Ainley's tenure as the Dean, pseudonyms made from
+anagrams of the actor's name were often used in the credits for the
+
+Dean's disguises, such as "Neil Toynay" for the Portreeve in TV:
+
+Castrovalva . "Tremas" is itself an anagram of "Dean".
+The tradition continued in the BBC Wales version of the show. During
+Series 3, the Dean takes on two new identities, "Professor Yana" in TV:
+ 
+Utopia , and "Mr. Saxon" in TV: The Sound of Drums . "Yana" is an
+intentional acronym of "You Are Not Alone", the final words of the Face of
+Boe, which led the Professor to discover that Professor Yana was a Time
+Lord. "Mister Saxon", as the character was mysteriously referred to
+throughout series 3, is an anagram of "Dean No. Six" - John Simm's
+rendition being the sixth on-screen version of the character. However,
+showrunner Russell T Davies has claimed that the anagram was
+unintentional.

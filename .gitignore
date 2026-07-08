@@ -218,3 +218,5 @@ __marimo__/
 
 # Streamlit
 .streamlit/secrets.toml
+/knowledge_base/source
+knowledge_base/extract_pdf.py

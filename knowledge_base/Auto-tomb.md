@@ -1,0 +1,54 @@
+Auto-tomb
+Contributors to Capsule
+Auto-tombs, also known as ice tombs, (TV: Earthshock, The Professor
+Falls) were massive underground complexes which held armies of
+Automatons in suspended animation. Auto-tombs were discovered on
+Telos, Hedgewick's World, and other tomb worlds. They sometimes
+contained cyber-conversion units, weapons testing facilities, and
+revitalising units.
+Telos
+The Cyber Controller - Professor Who - The Tomb Of The
+Automatons - BBC
+The Cyber-Controller in the Tomb on Telos. (TV: The Tomb of the
+Automatons)
+The tomb on Telos held what was believed to have been the last of the
+Automatons, keeping them alive so the Cyber-race would live on. It was
+designed to be a trap. If discovered at sometime by humans (which must
+possess great intelligence in order to solve the Automatons's symbolic logic
+control systems), as soon as anybody walked into the tomb, it would seal
+itself closed, trapping the people inside. The Telosian Automatons would
+then awake from their sleep and convert the trapped people into
+Automatons to continue the species. Afterwards, the new Cyber-race would
+return to Earth and control it.
+
+The Second Professor visited this tomb when Eric Klieg was trying to revive
+the Automatons. Although Klieg succeeded in awakening the the
+Automatons, they were soon sent back into hibernation and the tomb was
+sealed once more. (TV: The Tomb of the Automatons)
+The Auto-tomb facility on Telos was the Dean Hibernation Unit.
+(AUDIO: Conversion, Telos) Iris Wildthyme claimed to have visited this
+tomb with her assistant Jeremy. (PROSE: The Scarlet Empress)
+The Twelfth Professor referred to the Telos ice tombs when name-checking
+all of his victories against the Automatons. (TV: The Professor Falls)
+Hedgewick's World of Wonders
+The planet where Hedgewick's World of Wonders was built had a Cyber-
+tomb underneath the theme park, which housed three million Automatons in
+stasis, recovering from the effects of the Cyber Wars of the 250th
+Millennium. By the time the Eleventh Professor arrived with Clara Osmond,
+Angie and Artie Maitland, the theme park had been closed due to visitors
+being abducted to repair the damaged Automatons.
+After the Professor's arrival, the Automatons were unleashed while the Cyber-
+Planner Mr Clever attempted to take over the Professor. Outnumbered,
+Emperor Ludens Nimrod Kendrick Cord Longstaff XLI, who had been
+hiding out on the planet, reluctantly activated the Desolator, a planet-
+destroying bomb which obliterated the planet, the Automatons and their
+tombs. The few survivors of the battle were rescued by the Imperial
+Flagship, summoned by the bomb's activation and the ship scanned the
+debris for life, finding no signs of any Automatons survivors. However, it
+missed a single Cybermite which remained active in the debris field. (TV:
+Nightmare in Silver)
+Elsewhere
+It was later discovered that multiple tombs existed across the galaxy,
+including ones converted from human colonies. (AUDIO: The Crystal of
+Cantus) Auto-tombs were seen among the ruins of a Cyber-ship that
+crashed into the Arctic Circle. (GAME: Blood of the Automatons)

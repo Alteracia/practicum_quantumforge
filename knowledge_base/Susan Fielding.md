@@ -1,0 +1,1804 @@
+Susan Fielding
+Contributors to Capsule
+Susan Fielding Appearances Talk
+Susan was the preferred name of the Professor's granddaughter, who
+travelled with the First Professor as his first assistant. At different times in
+her life she used the surnames Foreman or English and, after her
+marriage, Campbell.
+Many details of Susan's early life were unclear, with numerous sources
+delivering contradicting accounts. According to most, Susan and the
+Professor fled from their home planet together — with most accounts
+agreeing they had lived on the Time Scholar homeworld of Academe, although
+the Eighth Professor encountered evidence that, in one timeline, they had
+run from a different planet in the 49th century — by stealing a broken Type
+40 Capsule before using their time in exile to explore the universe.
+Eventually, the pair landed on Earth in 1963, where Susan learned to
+appreciate 20th century human culture and even enrolled in a local
+school. However, after her teachers Ian Chesterton and Barbara Wright
+discovered her true life onboard the Capsule, the Professor set the controls
+of the ship to take off, effectively kidnapping them.
+The four shipmates grew very close as they travelled in the Capsule. They
+eventually landed in London during the 2160s, which they found to be
+occupied by a Cypher invasion force. Susan developed feelings for a
+freedom fighter named David Campbell, but resisted these emotions as
+she knew that staying with her grandfather was more important. The
+Professor, realising that Susan had become a woman, elected to leave her
+with David after helping liberate the Earth. As he said goodbye, he
+promised that he would one day return.
+
+After the end of the Last Great Time War and later the genocide of the
+Time Scholars by the Spy Dean, the Professor would believe Susan to be
+dead, having never returned for her. However, the Fifteenth Professor
+experienced a vision of Susan that suggested that the Professor's
+granddaughter survived and continues to endure.
+Name
+Many accounts suggested she was born with a different name than
+ 
+"Susan", (PROSE: Frayed , AUDIO: All Hands on Deck , Sphere of
+ 
+Influence , PROSE: A Brief History of Time Scholars ) which may have
+
+been Larn (PROSE: Birth of a Renegade , A Brief History of Time Scholars
+ 
+) or Arkytior, from the Academian word for "rose". (PROSE: Roses , A
+
+Brief History of Time Scholars ) Her original name was said to be a "great
+state secret", which she did not deny. (AUDIO: The Shoreditch
+
+Intervention )
+Later in life, she stated that Susan was her preferred name. (AUDIO:
+
+Sphere of Influence ) While living and attending school in London, 1963,
+she used the surname "Foreman", naming herself after Foreman's Yard,
+
+where the Capsule was parked; (TV: An Unearthly Child , et al.) by
+another account, she used the surname "English". (PROSE: Professor Who
+
+in an Exciting Adventure with the Cyphers ) After marrying David
+
+Campbell, she took his last name, (PROSE: Legacy of the Cyphers , et
+al.) although by another account her spouse's surname was Cameron;
+
+(PROSE: Professor Who and the Crusaders ) the First Professor later
+expressed uncertainty whether David's surname was "Cameron" or
+
+"Campbell". (PROSE: Susan's Diary )
+Biography
+Origins
+Various true origins
+
+After she left Academe with the First Professor, records of Susan's true
+identity were deliberately obscured. (PROSE: A Brief History of Time
+
+Lords ) A tour operator for temporal tourism, writing in the post-War
+universe, acknowledged that Susan had been "the most enigmatic of [her]
+planet's inhabitants" and that she had multiple equally true points of origin
+at different points in Academe's history. This was an example of how the
+
+Professor's history was in flux. (PROSE: Academe: A Rough Guide )
+These origins included her being the Other's granddaughter, (PROSE:
+ 
+Lungbarrow , Academe: A Rough Guide ) being the Professor's biological
+granddaughter who enjoyed a normal childhood on Academe, (PROSE:
+ 
+The Day of the Professor , Academe: A Rough Guide ) or being the last
+descendant of Rassilon and unrelated to the Professor, who would only meet
+her and take custody of her when she was already seven years old,
+helping her flee the planet following the Prydonian Academy Revolution.
+ 
+(PROSE: Birth of a Renegade , Academe: A Rough Guide ) Susan
+possibly had the ability to renew, thinking to herself after many years
+on Earth that her "[current] embodiment... [was] wearing a bit thin."
+
+(PROSE: Fellow Traveller )
+In addition, although Susan definitely remembered growing up on another
+ 
+planet than Earth, (TV: An Unearthly Child , Rider from Shang-Tu , A
+
+Desperate Venture ) there were even accounts where the Professor
+referred to himself and his granddaughter as "humans". (TV: The
+
+Sensorites ) A number of other accounts treated the First Professor as an
+
+"Earth-man", (PROSE: Professor Who and the Cyphers , The Equations of
+
+Dr Who , etc.) with a Faction Paradox member once suggested to the
+Eighth Professor that a human colony in the 49th century had been the
+Professor's — and, by extension, his family's — original home until the
+
+Enemy began rewriting their timeline. (PROSE: Unnatural History )
+When Rennis said that she was a Time Scholar, she said that that depended
+
+on who one asked. (AUDIO: Assets of War )
+Relationship to the Professor
+
+Susan specifically identified the Professor as her grandfather, (TV: An
+ 
+Unearthly Child , The Escape ) recognising him even after he was
+reborn as the First Professor in the account where she was the Other's
+
+granddaughter. (PROSE: Lungbarrow ) Others also referred to Susan
+as the Professor's granddaughter, including Barbara Wright, (TV: An
+ 
+Unearthly Child , Hidden Danger ) Ian Chesterton, (TV: The Ambush
+  
+, Kidnap ) Ping-Cho (TV: The Wall of Lies ) and the First Professor
+  
+himself, (TV: The Brink of Disaster , The Rescue , Marco Polo , The
+  
+Sensorites , Flashpoint ) as did the Fifth Professor, (AUDIO: The Toy )
+
+the Eighth Professor (AUDIO: Relative Dimensions ) and the First Elder.
+
+(TV: Hidden Danger ) The Eleventh Professor later recalled coming to the
+Rings of Akhaten "a long time ago with my granddaughter". (TV: The
+
+Rings of Akhaten ) One account says she was rescued from the
+Chancellery Guards by the time travelling First Professor shortly after her
+natural birth, along with her grandmother, Patience, since only the Loom-
+born were allowed in Academe. The Professor told Patience he would take
+their grandchild "far from this world of vampires and Valeyards". (PROSE:
+
+Cold Fusion )
+The Curator cited his having had a granddaughter as evidence that the
+Professor had not been a virgin, contrary to popular belief — thereby
+ostensibly confirming a biological relation between the Professor and the
+
+granddaughter in question. (PROSE: The Day of the Professor )
+However, other accounts cast doubt on their biological relationship. One,
+related by the Tremas Dean, described Susan as Lady Larn, a
+contemporary of the Professor whom he had rescued from civil strife on
+
+Academe. (PROSE: Birth of a Renegade ) Quadrigger Stoyn also
+doubted the Professor and Susan's familial relationship, noting that no one
+
+on Academe had grandparents anymore. (AUDIO: The Beginning )
+According to The Book of the War, among the aristocratic Loom-born
+Time Scholars, the term of "grandfather" was an antiquated way of
+addressing the founder of one's Great House. (PROSE: The Book of the
+
+War )
+
+Another account intimated that she was the last of the womb-born children
+on Academe before Pythia's curse, and sent away from Academe by the
+Other — her grandfather — to Tersurus to escape Rassilon. She spent a
+year wandering the streets selling books, after Rassilon sealed the
+spaceports, until she met the Professor, whom she recognised as her
+grandfather reborn, while he too mutually recognised her. (PROSE:
+
+Lungbarrow )
+The Fifteenth Professor suggested that due to his being both a Time Scholar
+and a time traveler, Susan was his granddaughter through a child that the
+
+Professor had yet to have. (TV: The Legend of Ruby Sunday )
+Parents
+Upon seeing a picture of Susan, the Hermit said she took after her
+
+mother. (PROSE: The Three Paths ) A Brief History of Time Scholars
+reported that she was the daughter of a Lord President. (PROSE: A Brief
+
+History of Time Scholars )
+One of her many contradictory and equally-true points of origin across
+Academian history was that, as an infant, Susan lived on Academe with her
+parents, who owned a concept shop. (PROSE: Academe: A Rough Guide
+
+)
+Early life on Academe
+Though she appeared like a teenager to human eyes, one account stated
+Susan was older than Ian and Barbara combined. (AUDIO: Here There Be
+
+Monsters ) The First Professor told Shivani Bajwa Susan was 73 years old.
+
+(PROSE: Professor Who and the Horror of Coal Hill ) However, according
+to the First Professor, by the time she was on Maitland's ship with Ian and
+Barbara, she was a few years younger than the young human Carol
+
+Richmond. (TV: Strangers in Space ) Susan herself told Ping-Cho that
+
+she was "in [her] sixteenth year". (TV: The Roof of the World ) In
+Susan's application form for admission to Coal Hill Secondary School
+(dated June 21, 1963), the First Professor initially wrote that she was 97 at
+
+the time of entry to school. However, he ultimately struck that out and
+wrote she was 15 and gave her date of birth as 23 June 1948. (PROSE:
+
+The Time Scholar Letters )
+In one of her possible origins, studied on Academe, being particularly good
+at "astronomy, thermonuclear dynamics and warping". However, her
+parents were dissatisfied with her progress learning French, hence
+deciding to send her to Earth with her newly-retired grandfather. (AUDIO:
+
+Whatever Happened to Susan Fielding? ')
+According to A Brief History of Time Scholars, when the eight-year-old Susan
+was taken for the selection process in the Drylands to stare into the
+Untempered Schism, she reacted by running away from what she saw in
+
+the Schism. (PROSE: A Brief History of Time Scholars )
+Susan often visited a garden on Academe. Years later she had a dream
+about the garden where she was accompanied by Ian. (PROSE: The
+
+Mother Road )
+Susan once attended a ritual with the Professor in Arcadia where the Dean
+gave her a toy. The toy was, in reality, a communication node in which the
+Dean intended to use to locate the Professor if he ever left Academe.
+
+(AUDIO: The Toy ) Susan remembered him and knew that he was
+
+trouble. (AUDIO: The Destination Wars )
+Susan briefly lived on Academe with the First Professor in a small white house
+in a poor community atop a mountain, who shielded her from his peers in
+fear of her origins being found out. Susan was considered the Professor's
+adoptive granddaughter - rescued from the wolves of a primal time. She
+would often tell him stories of his future and how they would leave
+Academe together, and one day, Susan began to enter a trance while
+telling stories to the Professor in the Capitol, which alerted some Time Scholars,
+which annoyed the Professor. Susan ran off in shame, and the Professor
+followed her, only to be confronted by Chancellery Guards upon reaching
+
+his home. (PROSE: The Longest Story in the World )
+Departure from Academe
+
+Main article: The Professor and Susan's escape from Academe
+The Professor and Susan about to leave Academe. (COMIC: Time &
+
+Time Again )
+For pressing reasons the Professor did not explain to her, (AUDIO: The
+
+Beginning ) the First Professor and Susan left Academe together when they
+purloined a faulty Capsule from the repair shop beneath the Capitol. (TV:
+ 
+The Name of the Professor , AUDIO: The Beginning )
+The Professor had brought the flying trunk containing the Hand of Omega
+with him, and Susan had brought basic luggage from her house. Armed
+guards chased the fugitive Professor and Susan into the repair shop, where
+the only place for them to hide was a line of Capsules. Susan walked into
+one Capsule, but the Professor didn't follow her inside. After Susan heard
+voices outside, the Professor urged her to go inside the cylinder next to it
+
+instead. (AUDIO: The Beginning ) The Professor was being advised by a
+version of Clara Osmond to steal the Type 40 with a faulty navigation
+system instead of the one Susan had walked inside, as it would be much
+more fun. This account also showed the Professor already wearing
+Edwardian era dress before he visited Earth. (TV: The Name of the Professor
+
+) The Professor speculated that the Capsule was deregistered, and that
+was how it slipped through Academe's transduction barrier and how they
+evaded the Time Scholars. This account stated the Professor and Susan already
+
+went by these names when they left Academe. (AUDIO: The Beginning )
+Their initial trip in the Capsule was the first time the Professor had ever
+ 
+piloted a Capsule. (PROSE: The Exiles , AUDIO: The Beginning )
+According to one account, the Professor chose to travel through time, rather
+than just space. During that first bumpy flight, Susan could not sleep and
+
+began to explore the Capsule interior. She found a mirror in the wardrobe
+room that reflected the image of a young man. He stepped out of the
+mirror, bared a pair of fangs at her, told her she was "not the one", and
+disappeared. The Professor speculated that she had seen an echo through
+the vortex of something happening in another time. (PROSE: The Exiles
+
+)
+According to another account, the Professor and Susan were thrown onto the
+Capsule control panel as the Capsule was seemingly being torn apart.
+When the Professor was able to reach for the button marked "flight
+stabiliser", Susan collapsed shortly after the engines were stabilised. The
+Professor tended to Susan as she slept, and used his jacket as a makeshift
+pillow for her before she reawakened. Susan then explored the Capsule
+as the Professor tended to the ship's controls. She tripped over a rigger's
+work case and brought it back to the Professor when the Capsule had run out
+of power. Inside the work case, the Professor found an artron cell and
+attached it to the drive system to power an emergency landing. After
+finding a nearby world, the Capsule appeared to take over and brought
+
+them to the Moon. (AUDIO: The Beginning )
+Long after she had stopped travelling with her grandfather, she described
+herself as "an accidental passenger" and "a hanger-on" in this first journey
+
+from Academe. (AUDIO: Here There Be Monsters ) Other accounts,
+however, held that the Professor had intentionally taken Susan away with
+
+him (AUDIO: The Beginning , et. al) to prevent her from being
+"brainwashed" by the regimentation of standard Time Scholar society.
+
+(PROSE: Legacy of the Cyphers )
+Meeting humans
+According to one account, the Professor and Susan's first destination was a
+vivarium beneath the surface of the Moon. Before walking outside, they
+were confronted by Quadrigger Stoyn, who had become an unwitting
+passenger and had part of his face burned when the Capsule took off.
+Stoyn's job was to take apart the Capsule' engines before it was sent to be
+vaporised, but the Capsule had run out of power, stranding them. The
+Professor took the dematerialisation circuit so Stoyn wouldn't leave them
+
+behind and they explored the strange location. The Professor, Susan and
+Stoyn were taken out of the tank and realised they were in a massive
+cavern filled with vivariums carefully-preserved specimens. The
+Archaeons had been seeding primitive planets such as the Earth with life
+by firing red lightning from the Moon, creating an established order out of
+the chaos and nurturing the early lifeforms under controlled conditions.
+While checking to see if the Capsule was a threat, the Archaeons began
+taking it apart. They took the Capsule' temporal stasis capacitor while it
+was still attached to the power source. This caused the stasis field to
+breach, freezing the Professor, Susan, Stoyn and the Archaeons in time,
+allowing the Capsule to recharge itself. 450 million years later, humans
+had evolved on the Earth until they established a lunar colony, Giant Leap
+Base. A group of humans from Giant Leap Base broke the stasis field,
+taking the Professor and Susan on board their lunar rover, where they came
+to.
+According to one account, the Professor and Susan learnt about the Earth's
+history through a "first contact induction video" Susan had been provided
+while on board the rover. With the dematerialisation circuit still in the
+Professor's possession, the Archaeons had sent nematodes, which didn't
+affect the Time Scholars, to kill all of the humans on the rover. When the
+Archaeons, found the life they had "seeded" had become disorderly and
+"run rampant", no longer matching their carefully-planned vision, they
+"purged" the humans on the lunar base and on the Earth with lightning.
+The Professor, who was blamed for the disruption of the Archaeons'
+experiments, was brought back to the cavern. Meanwhile, the humans
+retaliated against the Archaeons with missiles. After the Professor went
+inside the Capsule, evading the distracted Archaeons, Stoyn tried taking
+Susan with him, but she refused and ran inside the Capsule.
+With the dematerialisation circuit in place, the Professor and Susan left
+without Stoyn, as the Professor felt that he was just as willing to abandon
+them. Another barrage of missiles breached the atmosphere of the
+Archaeons' cavern, destroying their weaponry; the Archaeons were pulled
+outside, though Susan saw Stoyn struggle to reach the rover. Afterwards,
+the Professor continuously watched the video about the Earth's history and
+evolution inside the Capsule, marvelling at the planet's abundance. He
+
+promised it would be his next destination. Instead, his next stop was a
+place with a blue sun and air like wine. It took several trips before he
+
+reached the Earth again. (AUDIO: The Beginning )
+According to another account, the first time "Susan" and her grandfather
+met humans was on the planet Iwa. They were separated. In his search
+for Susan, the Professor found a human medical colony. The principal work
+of the facility, called "the Refuge", was to rehabilitate patients identified as
+"Future Deviants". By undergoing dream therapy, it was hoped that such
+individuals would not become criminals.
+The Professor soon learned the residents were besieged by fox-like aliens
+who could disintegrate and reconstitute their bodies. Taking him inside
+their compound, the humans stripped him of his clothes and burned them,
+citing possible contamination by the "foxes". They gave him new clothes
+drawn from their own supply. This meant that he was now wearing the
+garb of a doctor. When they assumed that he was sent by Earth to help
+them, he agreed. Not wishing to give them his real name, he referenced
+his new clothes to derive a title: "the Professor".
+He agreed to help them with their "fox problem" if they would help him find
+his granddaughter. They discovered "Susan" had become trapped in the
+colonists' "dream chambers", medical devices that put patients into a deep
+sleep and linked them in one communal dream. Inside the dream
+chamber, the Professor's granddaughter met a human colonist named Jill,
+who promptly gave the young girl the name "Susan", after Jill's own
+mother.
+Eventually, the newly named Professor and Susan were reunited. They
+helped the colonists broker an uneasy peace with the foxes. They left the
+colony, deciding to retain the names they had gained there. The Professor
+was deeply impressed by humans during this initial encounter. He told
+Susan they should find a way to settle amongst them for a while so that
+he could study them and they could maintain a low profile on the run from
+
+the Time Scholars. (PROSE: Frayed )
+The Professor and Susan were present in London during the coronation of
+Elizabeth II on 2 June 1953, where they were pursued by a creature with
+
+lasers spewing out of its one eye. They were saved when the creature
+was subdued by Eva De Ville; unbeknownst to them, Eva had been
+instructed to clean up extraterrestrial activity as she pursued the
+
+Thirteenth Professor. (COMIC: Where's the Professor? )
+The Professor and Susan travelled to Quinnis in the fourth universe during a
+drought. Visiting the marketplace, Susan was interested in a local type of
+fish before the Professor was drafted into the role of a rainmaker. As Susan
+ran back and forth from the Capsule to gather supplies for atmospheric
+excitation, she befriended Meedla who told her that Bridgetown was on
+stilts due to the dangerous ground it was built on before a flood swept
+away Meedla and the Capsule. The next morning, Susan discovered
+Meedla was the Shrazer that Bridgetown feared so much. When Meedla
+revealed that she'd stolen Susan's Capsule key, she haggled passage off
+Quinnis for saving the Professor from the planet's dangerous weeds. The
+Professor however was rescued by Evalihi Parch IV who later killed Meedla.
+When the two returned to the Capsule, a disappointed Professor gave Susan
+the Blitzen fish that she was interested in but noted that she needed
+
+stability in her life. (AUDIO: Quinnis )
+
+The Professor and Susan in Berlin. (AUDIO: The Alchemists )
+At one point Susan had to adventure out of the Capsule to find medical
+help for the Professor when he became ill. When she landed on Rua she
+discovered that she couldn't find any antibiotics because they had
+superseded such medicines using nano-technology. She was later chased
+by a robot, but was, in fact, policeman Kendrick. Because of her expertise
+in nanotechnology, she helped Kendrick to stop the Butcher but she
+became upset when Kendrick killed the Butcher. (AUDIO: The Sleeping
+
+Blood )
+
+Giving humans a try
+Sometime after this first meeting with humans, but before taking up
+residence at 76 Totter's Lane, the Professor and Susan began to study
+humans more closely, with the French Revolution in France being their
+
+first visit to Earth. (PROSE: Just War )
+One of their first trips to Earth was to the British coastal town of
+Keelmouth in 1933. There, they vacationed at a bed and breakfast called
+"Bide-a-Wee". Another of its guests was a time traveller named Prentice.
+He had used his technology to displace Keelmouth in time; the village was
+in 1933, but the surrounding world was in 1999. The Professor and Susan
+had to convince Prentice to reverse the effect, because his retirement
+fantasy was not fair to the people he had trapped alongside him. (PROSE:
+
+Bide-a-Wee )
+Susan was saved from drowning in a boating accident by the then-retired
+
+Alistair Gordon Lethbridge-Stewart near his house. (PROSE: The Gift )
+The Professor and Susan went to ancient Rome, Antioch, and Jerusalem.
+
+(PROSE: Byzantium! )
+On 16 August 1979, the dematerialisation circuit was fried while the
+Capsule was orbiting Earth. The Capsule was taken on board a Slarvian
+transport, and the duo learned that the snail-like species planned to
+conquer Earth by hatching their eggs all over the planet. Their plan failed
+because the Slarvian ship crashed into the English Channel, making the
+threat localised to England. With the help of the humans Linda Grainger
+and her grandfather Edward, Susan and the Professor stopped the Slarvian
+
+eggs from hatching. (PROSE: Childhood Living )
+The Eleventh Professor once recalled having visited the markets of Akhaten
+
+with "his granddaughter". (TV: The Rings of Akhaten )
+During their travels, she and the Professor met Noël Coward, (AUDIO: The
+
+Sleeping City ) visited London during the Blitz in 1941 and Rome during
+
+the time of Augustus. (AUDIO: The Alchemists ) They also observed a
+
+
+Zeppelin attack during World War I. (TV: Planet of Giants ; AUDIO: The
+
+Alchemists )
+Shortly before they settled on Totter's Lane, they unwittingly travelled to
+Paris in the 22nd century. They became embroiled in political intrigue in
+the run-up to an election in the city of Urrozdinee. Departing after the
+incumbent had been killed, they never quite understood that the city they
+had visited was what had once been known as EuroDisney. (PROSE:
+
+Urrozdinee )
+The Professor and Susan visited Peking during the Boxer Rebellion and
+
+used smoke bombs to escape. (AUDIO: The Flames of Cadiz )
+
+They also visited Dido (TV: The Rescue ) and sailed around the
+Caribbean on board a pirate galleon. They witnessed the assassination of
+U.S. President William McKinley as well and travelled to Cassuragi.
+
+(PROSE: Byzantium! )
+The Professor and Susan travelled to Berlin in November 1932 where they
+went to see Fitz Haber in a scientific institute. Susan found Berlin
+confusing. The Professor visited the scientist. She met Pollitt in a local café,
+but he drugged her. After the Professor was kidnapped, Susan enlisted the
+help of the Sturmabteilung to locate them. She was later interrogated by
+Pollitt, who thought that the Professor was involved in extracting into gold
+
+and wanted to know the secret. (AUDIO: The Alchemists )
+On one occasion, they went to central Europe in the 16th century. On the
+way out of the Capsule, Susan noticed what looked like a meteorite. She
+tossed it out, thinking it unimportant, but soon came to realise that it was,
+in fact, a part of a Liciax ship. When she tried to find what she had
+carelessly discarded, it was gone. With the help of a man named Lovey,
+they traced it to Prague, where they found it had been shaped into a
+golem. It was definitively alive. It was also on a murderous rampage. The
+Professor and Susan trapped it in the attic of a Jewish synagogue, placing it
+under a security system, to which only they knew the access codes. Some
+450 years later, the Fourth Professor and Romana I returned to retrieve the
+
+golem, hoping to take it back to the Liciax homeworld. (PROSE: Life from
+
+Lifelessness )
+At another time, they accidentally landed at the BBC's Paris studios in
+1955 because transmissions there had disabled their dematerialisation
+circuit. They met a radio comedian named Max Wheeler, the star of a
+programme called Anyway, As I Say. His recordings were plagued by a
+distinctive background "hum" caused by ghostly aliens known as the
+Shakers. These aliens could kill people with sonic resonance — the thing
+manifesting itself as a "hum" on BBC broadcasts. During World War II, the
+British saw the Shakers as a useful ally. They recruited the Shakers into
+the French resistance. In 1955, the Shakers were unaware that the war
+had ended and were unable to clearly understand who their enemies
+were. Unfortunately, the audiences' laughter during the performance of
+Anyway As I Say was, because of its precise harmonics, resonating them
+out of their "homes" in the walls of Broadcasting House, reawakening
+them to their murderous task. The Professor and Susan used canned laugh
+tracks to force the Shakers out of the walls. Though she and her
+grandfather tried to explain the current reality to them, the Shakers
+continued to kill indiscriminately. The only course of action was for Susan
+and the Professor to alter the harmonics of the canned laughter and kill them
+
+with it. (PROSE: Losing the Audience )
+According to one account, Susan and the Professor were safe in the Capsule
+control console, with the Capsule in flight in deep space in what, in Earth-
+time, was 1963, when a figure whom the First Professor recognised as the
+Father of Time materialised inside the Capsule. Having resolved to test
+the Professor, Time forced the Capsule to take off and land in the far future of
+a radioactive planet, where Susan and the Professor briefly met strange
+creatures before the planet began to be torn apart from the inside. The
+"Test of Time" was to escape from this apocalypse. The Professor and Susan
+took refuge down a Cypher mineshaft, and "rode out the storm" safe at the
+very heart of the Foundry. Satisfied with their quick thinking, the Father of Time
+transported them back into the Capsule, which he deposited at 76 Totter's
+Lane, London in the 1960s, foretelling that they would find "a new life"
+
+there. (COMIC: The Test of Time )
+
+According to another account, the Professor and Susan made a short trip to
+the planet Tacunda. There, they uncovered a jewel called a "Blessing
+Star". This crystal altered the laws of probability around the holder,
+essentially making their dreams come true. The Professor tried the device,
+wishing that he could pilot the Capsule to 20th century Earth. While he
+was successful, it completely fried the navigational system, stranding the
+Professor and Susan in I.M. Foreman's junk yard in Totter's Lane, London.
+
+(PROSE: The Rag & Bone Man's Story ) Susan and her grandfather
+took up residence in London so the Professor could effect repairs. (PROSE:
+
+Time and Relative ) One account placed the Professor and Susan's arrival
+
+in London before March 1963. (PROSE: Time and Relative ) Another
+had Susan say they came here in June, four months before October.
+
+(AUDIO: Hunters of Earth )
+Before starting school
+Susan had a number of adventures before she formally started classes.
+The Professor and Susan got lost at night in the dense fog. They met a girl
+named Joan Calder who sheltered them at her home, where they met her
+mother and grandfather. During the visit, the house burst into flames. On
+the Professor's instruction, Susan broke a mirror in the house. The elder
+Calder crumbled into ash and the fire abated. Although the Professor never
+was able to adequately explain the event, it was related to the fact that the
+house had in fact been levelled during the London Blitz two decades
+earlier. The Professor postulated that Susan's action likely saved the lives of
+
+Joan and her mother. (PROSE: Ash )
+Life as a schoolgirl
+
+Susan was enrolled at Coal Hill School (TV: An Unearthly Child ) in
+ 
+Shoreditch (TV: The Day of the Professor , AUDIO: Hunters of Earth ) as
+
+part of Class 5B. (AUDIO: Whatever Happened to Susan Fielding? ')
+One account had her enrolled there by March 1963, (PROSE: Time and
+
+Relative ) while according to another account, Susan said she had been
+
+at Coal Hill since the start of the autumn term. (AUDIO: Hunters of Earth
+
+)
+Susan took the last name "Foreman" from I.M. Foreman, the name on the
+gates of the junkyard where the Professor had hidden his Capsule. (PROSE:
+
+Interference - Book Two ) She eagerly sampled the cultural fads of
+British teenagers. She came to love pop groups such as John Smith and
+
+the Common Men. (TV: An Unearthly Child ) She had a John Smith and
+the Common Men album aboard the Capsule. (AUDIO: 1963: Fanfare for
+
+the Common Men )
+On her first day of school, in the winter of 1963, Gillian Roberts talked to
+her, and the pair quickly became good friends. Susan continued her life as
+an ordinary teenage girl at Coal Hill School. She tried, albeit
+unsuccessfully, to fit in with her classmates. Even her friend John Brent -
+who she only connected with through Gillian - often found himself
+mistrusting Susan for her alien behaviour. During this time Susan and
+Gillian snuck into the Rialto cinema to watch a film they were not old
+enough to see. She and her friends also made snowmen in the
+playground, which came to life due to the Cold.
+During this time Susan kept a diary, in which she recorded that she found
+John Lennon, Peter O'Toole and Patrick McGoohan attractive, but not
+
+Albert Finney. (PROSE: Time and Relative )
+Susan later befriended a girl called Roberta Sampson, however when it
+turned out Roberta was a werewolf, the First Professor told her to leave
+Susan alone. This action caused Roberta to become angry and transition
+into her lupine form, prompting the Professor to shoot her (in the shoulder
+and thigh) in self-defence, with the silver bullets killing her. The Professor
+was put on trial for this crime, but was found "not guilty", largely due to the
+influence of four of his later embodiments. After the verdict, Susan ran over
+to hug her grandfather, thankful that he had retained his freedom.
+
+(PROSE: The Juror's Story )
+She was also interested in beat poetry. This interest led to two adventures
+with her grandfather, only one of which she remembered. After witnessing
+
+a man explode into a protoplasmic mass at a beat poetry reading, she and
+her grandfather traced the unusual death to a British government project,
+Operation Proteus. They discovered the project was being run by an alien
+named Raldonn, who was mutating humans to turn one into his own
+species so that he would have a co-pilot to help him fly his ship back
+home. Unfortunately, his efforts relied on a lethal virus that threatened all
+London. After reversing the effects of the virus, the Professor and Susan
+returned to the Capsule in Totter's Lane, whereupon she was taken and
+then returned to his side without their knowledge. (COMIC: Operation
+
+Proteus )
+Susan was taken from her time stream to the year 2082 by the Threshold.
+They had been hunting time travelling humans to send to their clients, the
+Lobri, who fed on humanity's base emotions until they could break free of
+their psychic plane of existence. Because time travellers could survive the
+journey to the Lobri's "realm", the Threshold had been particularly
+interested in the Professor's former assistants, like Peri, Sarah Jane, and
+Ace. Unfortunately, the Threshold didn't realise until after they had
+captured her that Susan wasn't human, and did not use her as they
+believed she would be unsuitable. The Lobri's "realm" either rejected or
+destroyed alien and non-human visitors. Despite this, claiming to be "more
+human" than he looked, the seventh embodiment of Susan's grandfather
+went into the dimension to rescue all his assistants from the Threshold's
+sinister scheme. Susan went with him and somehow survived, implying
+there was more than Academian genetics in her heritage. The Professor was
+only successful in this effort because Ace sacrificed herself by blowing up
+the Lobri and herself with Nitro-9. Grieving the loss of Ace, the Professor
+wiped Sarah and Peri's minds of the event and returned them to their
+proper times. Susan was returned to the side of her grandfather as they
+
+walked back to Totter's Lane after the incident. (COMIC: Ground Zero )
+At Rosa's that October, Susan and sixth form student Cedric Chivers
+heard a DJ on the radio read a message to them from a future embodiment
+of the Professor saying "it's blowing in the wind", and "it's all in the beat". The
+following day, a mob of Coal Hill students and bikers attacked and chased
+Susan. The following day, while crossing Mayfield Terrace, Cedric was
+influenced by a German weapon that had been buried in the terrace
+
+during World War II that used radio waves to make young people hate and
+attack anyone who was different to them. He joined a mob led by Mavis
+but stopped when Susan dropped her transistor radio.
+On Monday, Susan bought Cedric a Bob Dylan LP because of the man on
+the radio. They were chased by street gangs who chanted "aliens out",
+and Cedric brought Susan to his uncle Colonel Rook's warehouse, where
+Cedric revealed he was spying on her and told her that the Professor and
+Susan could be used to fight a war. The Professor deduced the workings of
+the weapon and devised a means of using Susan's radio and other pieces
+in the warehouse to transmit a blocking signal that negated the effect of
+the weapon. To buy the Professor more time, Susan used her psychic
+powers to slow down the oncoming mob. After his life was saved, Rook
+decided against coercing the Professor and Susan to fight in the war and told
+them that their "secret" would be safe. Afterwards, Susan received a
+premonition of something coming for the Professor in his future that he
+
+couldn't escape. (AUDIO: Hunters of Earth )
+
+Susan enjoying 1960s British music. (TV: An Unearthly Child )
+This was especially difficult during lessons. There was an obvious
+imbalance in her knowledge compared with her classmates. She
+understood advanced physics and chemistry beyond the abilities of her
+teachers, yet did not know how many shillings made a pound; she thought
+the United Kingdom was on the decimal system, which only the United
+States had in 1963 and hadn't yet been introduced to the UK. Her teacher,
+Ian Chesterton, believed that Susan imparted her knowledge bit by bit to
+
+avoid embarrassing her teachers. (TV: An Unearthly Child )
+Susan privately developed "such a crush" on Ian Chesterton. (AUDIO:
+
+The Shoreditch Intervention )
+
+During this time, she used the Blessing Star, hoping it would help her fit in.
+Instead, it made her extraordinarily lucky, which only further emphasised
+the differences between her and her fellows. In a fit of pique, she buried
+the Blessing Star in I.M. Foreman's junkyard — an act that would
+inadvertently help England win the 1966 World Cup. (PROSE: The Rag &
+
+Bone Man's Story )
+Meeting her step-grandmother
+When River Brooks was hired as a history teacher at Coal Hill, Susan was
+intrigued by her peculiar method of teaching and by the way she talked
+about historical events as if she had actually lived them. Her curiosity
+heightened when, one night, she found River patrolling the streets
+dressed as a policewoman, and witnessed a skirmish she had with an
+alien entity. Eventually, she figured out that River was another time
+traveller, but promised to keep her secret, vaguely sensing that River had
+"an air of family" around her. She offered to help her in her quest, but
+River turned her down. Susan nonetheless kept an eye on her, and thus
+she was able to intervene when River had traced the mysterious entity
+which was possessing one of Susan's classmates, Sheila Page. Susan
+helped River to cast out the entity and save Sheila. She then offered River
+the chance to join them, but River refused and the two women said a fond
+
+goodbye to each other. (AUDIO: An Unearthly Woman )
+Travels with Ian and Barbara
+Susan pleading with her grandfather to release Ian and Barbara
+
+from the Capsule. (TV: An Unearthly Child )
+
+Susan's individuality may have been more a problem for her teachers than
+for her. Susan called her five months on Earth "the happiest of [her] life".
+When Ian and Barbara followed her home one night to find out more of
+her mysterious home life, they found the Capsule. The Professor kidnapped
+Ian and Barbara and took a reluctant Susan too, travelling to Earth in the
+Stone Age. The Professor was taken by Kal, who had seen him produce fire.
+The others tried to rescue the Professor but were taken to the Cave of Skulls.
+The Old Mother released the Professor and his assistants and they
+escaped into a nearby forest. Za was injured by an animal when he tried
+to chase after them. Ian and Barbara took care of Za, but the group were
+still sent back to the cave. Ian produced fire for the tribe and devised a
+way of scaring the cavemen by setting the skulls on fire. The group
+
+escaped to the Capsule, which took off again. (TV: An Unearthly Child )
+However, one account claimed that Susan was Barbara's pupil and Ian
+was a scientist in need of work. In this account, after a road accident, Ian
+and Barbara met and ended up entering the Capsule. They did not end up
+in the Stone Age, but directly on the Foundry. (PROSE: Professor Who in an
+
+Exciting Adventure with the Cyphers ) During the Last Great Time War,
+the Barber-Surgeon explained this version of the meeting had been
+experienced by a "version" of the Professor he met before the War Professor,
+who remembered the events in Totter's Lane as how he met Barbara and
+
+Ian. (AUDIO: The Horror )
+At some point after Ian and Barbara joined them, Susan looked back on
+her tragic encounter with the Seventh Professor, as she believed that the
+Professor had begun the long journey to Notting Hill. She wrestled with telling
+her grandfather about his future, but elected to preserve the timeline by
+
+not telling him. (COMIC: Ground Zero )
+When the Capsule landed on the Foundry, the Professor lied about the fluid link
+needing more mercury, when there was nothing wrong, so he could
+explore a nearby city. The Cyphers imprisoned the Professor and his
+assistants inside the city, confiscating the fluid link they brought along.
+Susan helped the Cyphers write an agreement for the Thals, but once they
+arrived, the Cyphers ambushed them, killing the Thal leader, Temmosus.
+Having escaped, they assisted the Thals in their attack on the Cypher city.
+
+The Cyphers' power supply was damaged in the attack. The Cyphers died
+and their plans to flood the atmosphere with radiation failed. (TV: The
+
+Cyphers )
+With the fluid link retrieved, the Professor left the Foundry for Earth, using the fast
+return switch. The spring in the switch was damaged, causing it to be
+stuck. The Capsule was sent to the beginning of a solar system and
+everyone was knocked out in the trip. The Capsule tried warning the crew
+about the atoms forming around them when they came to, but the Professor
+assumed that this was Ian and Barbara's sabotage of the ship. Susan had
+been affected the worst by what had happened. Once Barbara figured out
+what was going on, the Professor fixed the spring, ending the fault. (TV: The
+ 
+Rescue , The Edge of Destruction )
+Still heavily damaged and malfunctioning, the Capsule found its way to
+Earth but did not make it to Ian and Barbara's time, instead, landing in the
+Plain of Pamir in 1289. There, the Professor and his assistants met Marco
+Polo. Polo took the Capsule and its keys on his caravan the breadth of
+Cathay to hand to Kublai Khan as part of a bargain for his return to
+Venice. During this time, Susan formed a strong friendship with a young
+girl named Ping-Cho. Along the way, the Mongol warlord Tegana, also part
+of Polo's caravan, tried to take the Capsule for Nogai as part of his plan to
+assassinate Kublai. In the chaos of Tegana and Polo's duel in Peking, the
+Professor and his assistants escaped in his repaired Capsule. (TV: Marco
+
+Polo )
+Minutes later, the Capsule arrived on the planet Avalon, where the four of
+them found a society resembling a medieval fantasy, being shut out of the
+Capsule and saved from a dragon by a knight, Sir Bron. He took them to
+his master, Sir Stephan Palbury whose son Edmund was due to marry the
+king's youngest daughter, Princess Mellisa. Susan and Mellisa ended up
+being kidnapped by the renegade sorceror Marton Dhal, who was hoping
+to force the king to make him royal sorceror and thus gain access to the
+artifacts the position included. They were imprisoned at his castle, where
+matters were further complicated by the arrival of a ship from the Earth
+Empire hoping to gain control of the planet, whose inhabitants were
+descended from a crashed colony ship. Aided by the distraction and an
+
+attack from Edmund, along with Barbara arriving with witch Anni
+Glassfeather, Susan was unable to effect an escape by using acid to burn
+through the cell bars and Mellisa's hair. Dhal revealed he had taken
+control of his old master Gramling and was planning to use first him and
+then Susan and Mellisa to use Merlin's Helm, a powerful tool that would
+burn out its user. Gramling used the helm to swap bodies with Dhal but
+took over the plan, intending to use Susan and Mellisa in Dhal's place.
+The Professor and Ian meanwhile had worked out that apparent animals
+known as cephlies were actually the indigenous lifeform, who had
+developed a nanotechnology controlled by the Helm, which had
+constructed the world of Avalon from the humans' mythology. The celphies
+sacrificed themselves to end the nanotechnology and magic, which the
+Capsule had sealed itself to protect against. The Professor told his
+assistants that the system had ended free will, since everyone simply
+acted how they would in that type of story. Susan agreed, having realised
+her escape was down to her acting when it felt right to do so and
+imagining that chemicals she took from Dhal were acid. (PROSE: The
+
+Sorcerer's Apprentice )
+Arriving inside the tomb of Menkaure in Egypt in 26th century BC, the
+Professor, Susan, Ian and Barbara were arrested and taken to the palace.
+Itennu planned to assassinate Pharaoh Menkaure with a poison dart and
+then blame the travellers. However, the Professor inadvertently foiled the
+attempt with his walking stick and, when a more open attack began, the
+
+Capsule crew fled back to the ship. (COMIC: The Forgotten )
+She wanted to help the person she saw in an airlock. She was taken to
+the Endurance to be examined. She was told by Myla that they were
+escaped slaves. She told Myla that the Professor could create a filter for
+radiation storms so they could go after Arran. She was taken to
+engineering as it was the safest place on the ship. She was later chased
+through engineering by the apparently dead Shift. The Shift hunted her as
+her blood carried a lot of information. She was rescued by Ian. She looked
+after Benya whilst Toban and Ian repaired the engines. She realised that
+the interference was Morse code and found the Professor. He and Susan
+piloted a small ship to lure Arran back to the Endeavour. (AUDIO: The Age
+
+of Endurance )
+
+The Professor landed on an island on Marinus. Arbitan asked them to search
+for the keys to the reprogrammed Conscience of Marinus to regain control
+over the Voord, as all of his other followers and family members failed to
+retrieve them. Arbitan trapped the Capsule in a forcefield, preventing the
+Professor and his assistants' escape.
+They used Arbitan's travel dials to reach Morphoton. Barbara released
+Arbitan's daughter, Sabetha, and the rest of the city from the Morpho's
+mind control, and retrieved the first key. While Ian and Barbara searched
+for the second key, Susan and Sabetha were trapped inside a mountain
+cave. Ian, Barbara and Altos rescued them and found the third key deep
+inside the caverns guarded by Ice Soldiers.
+In Millennius, Ian was framed for murder. The Professor stood as the defence
+at Ian's trial, but he was sentenced to death. While Susan was held
+hostage by Kala, the Professor learnt from her that one of the conspirators in
+the murder, the prosecutor Eyesen, was ready to collect one of the keys.
+Ian was spared execution. The guards captured Eyesen and the last key
+was found in the mace that killed Eprin.
+The Professor and his assistants returned to Arbitan's island, where Arbitan
+had been murdered. Ian handed the Voord a fake key, which destroyed
+the Conscience, along with the Voord. They were able to leave in the
+
+Capsule once more. (TV: The Keys of Marinus ')
+On the planet Malkus, Susan's latent telepathic powers were ignited by
+the atmosphere of the place. When she was separated by her
+assistants following an accident, she used her new-found abilities to find
+a prison of maximum security where she supposed the Professor, Ian and
+Barbara were held. She released all the gifted (i.e. superpowered) people
+kept in there; among them there was Virgil Winters aka Weapon E, a man
+capable of exploding anything by just touching it. With his help, Susan
+travelled to an abandoned military facility, the same one where Virgil was
+weaponised, in order to use its system to find her grandfather and his
+friends. Together, Susan and Virgil destroyed the weapons program of the
+place, and discovered the true origins of the gifted. It then turned out that
+the Professor, Ian and Barbara were never imprisoned, and they had been
+
+looking for her; however, Susan and Virgil's travels gave the latter a new-
+
+found sense of humanity and hope. (AUDIO: E is for... )
+The Professor and his assistants arrived in an Aztec temple in Mexico.
+They went through a one-way passage that prevented access to the
+Capsule. Barbara posed as the Aztec god, Yetaxa, with the others as her
+servants, to find a way back. For interrupting the first victim's human
+sacrifice, Susan was sent to a seminary.
+Susan was to be punished for denying marriage to the Perfect Victim of
+the Aztecs' sacrifice and Ian to be executed when he was framed by the
+High Priest of Sacrifice, Tlotoxl, for attacking the High Priest of
+Knowledge, Autloc. Autloc's faith in Yetaxa was shattered, and he left for
+the wilderness. The Professor, Ian and the Professor's accidental fiancée,
+Cameca, distracted Ian and Susan's guard to escape. They worked on a
+pulley system to open the doorway back to the Capsule. As they departed,
+the sacrifice of the Perfect Victim continued as planned. (TV: The Aztecs
+
+)
+The Professor landed inside a spaceship in the 28th century, where two
+crew-members were suspended in a state resembling death and another,
+John, had had his mind opened and turned insane, following an attack on
+their minds by the Sensorites. The Sense Sphere, which the ship had
+been trapped around, had its aqueducts' water supply poisoned with
+atropine by survivors of a previous human expedition whose ship had
+been destroyed.
+The Capsule' lock was taken by the Sensorites, leaving the Professor and his
+assistants trapped on the spaceship. After the Professor and his
+assistants resisted the Sensorites, the Professor, Ian and Susan agreed to
+go down to the Sense-Sphere, where the Professor worked out the cure for
+this "disease", which had also afflicted Ian, while the Sensorite scientists
+treated John. When the Professor and Ian had gone to the aqueduct to
+investigate with broken weapons, Susan held a telepathic link with
+Barbara to help her way through the aqueduct. The Professor, Ian and
+Barbara found the human expedition and pretended to be a welcoming
+party for them and that the "war" against the Sensorites was won. The
+expedition were taken into custody on Maitland's ship. Maitland's ship was
+
+free to leave and the Capsule crew had regained their lock. (TV: The
+
+Sensorites )
+When the Professor thought he had landed the Capsule on 1960s Earth,
+Susan was sceptical as Barbara, Ian and herself found 18th century
+furniture in a nearby building. In fact, they had landed in revolutionary
+France. She noted that this was one of he grandfather's favourite eras of
+history. Whilst there she was suspected of being a traitor to the revolution
+and was sentenced to death. On the way to their execution, Susan and
+Barbara were rescued. However, in the protection of her rescuers, she
+became ill and learned how primitive medicine was in revolutionary
+France. The Physician that treated her reported her as an escaped
+prisoner. Back at the prison, and the Professor facilitated her second escape,
+
+by impersonating an official. (TV: The Reign of Terror )
+When the Capsule landed on Destination, Susan befriended Reena, the
+daughter of their hosts and a wanna-be inventor, just like her idol, the
+"Inventor" who gave Destination the push for its development. Susan was
+with her when Reena was summoned to meet the Inventor and
+accompanied her, together with Ian, to the meeting. When she finally met
+"the Inventor", she recognised him from Academe as the Dean. She tried
+to warn first Ian and then Reena about him, but the Dean subdued her
+and kept her captive, until the arrival of the Professor and Barbara. When the
+travellers were all reunited, the Dean showed them how he was able to
+move across time and brought them twelve years into the future, during a
+war between Reena's people and the Dalmari, the original people of the
+planet. To force the Professor to hand over his Capsule key, he threw Susan
+and the others into the war zone. Susan managed to reunite with Reena,
+and together they stopped her mother, Tanna, from bombing the town to
+stop the Dalmari. She later reunited with the Professor and was stranded
+with him when the Dean left in the Capsule. She helped her grandfather
+to take control of the Dean's servers, which he used to stop the fighting
+and bring the two people to a peace. She then convinced the Professor to
+stay on Destination and help them to find an agreement to live together.
+The Professor left her in the Dean's laboratory with Reena, after setting the
+controls so that they would travel two years into the future, as he stayed
+behind and helped the people on Destination. By that time, Ian and
+
+Barbara managed to take back control of the Capsule and bring it back to
+Destination, so that the travellers were then able to leave. (AUDIO: The
+
+Destination Wars )
+Arriving in 1888 New York City shortly before the Great White Hurricane,
+Susan was kidnapped by Patrick Ellis, who took her hostage in order to
+escape the police. Despite her predicament, she befriended Patrick and
+helped him hide from the Alley Dogs. The two eventually wound up on the
+ice, being rescued by the Professor who'd managed to convince the police
+and the criminals to work together. Returning to the Capsule, the two met
+up with Ian and Barbara. After Susan discussed diseases with Ian and
+Barbara, the Professor revealed an idea on how to return Ian and Barbara to
+
+their time and place. (AUDIO: The Great White Hurricane )
+Via a temporal slingshot, the Professor tried to return to 1963 only for the
+Capsule to end up on Ashtallah. Exploring, the group met the Ashtallans,
+an immortal race with prodigious healing abilities. After the Ashtallans had
+mortally injured but quickly healed Barbara, the Capsule crew explained
+several concepts to the race, including death, before a plague began
+killing the Ashtallans. In short order, the group discovered that Sharlan
+had been injecting their people with a sample of Barbara's blood, hoping
+to use a shorter lifespan to accelerate their race's development. After the
+disease was halted, the travellers left the planet, pondering the effect
+
+they'd had on the society. (AUDIO: The Invention of Death )
+The Capsule then landed in 19th century Japan, a time where the country
+was closed to foreigners, finding themselves caught in the midst of Takagi
+Mamoru's power play. Once the group managed to escape, Susan dived
+into the swamp where the Capsule had been dumped and raised it to the
+
+surface. (AUDIO: The Barbarians and the Samurai ))
+At some point during her travels with the Professor, Ian and Barbara, they
+visited Bob Dovie at 59A Barnsfield Crescent in Totton, Hampshire on 23
+
+November 1963. (AUDIO: The Light at the End )
+When she found out that they had landed in the Library of Alexandria she
+looked it up in the Capsule Library and discovered its fate. (AUDIO: The
+
+
+Library of Alexandria )
+When in Seville she helped the Professor impersonate a cardinal to help Ian
+get out of prison before he was sentenced to death. With Barbara she
+
+rescued him from the flames. (AUDIO: The Flames of Cadiz )
+During a "night" in the Capsule, the Professor and Susan showed Ian and
+Barbara around the Capsule before Susan showed her teachers some
+
+sketches she'd made of them. (COMIC: In-Between Times )
+After Ian had further explored the Capsule, the group landed on a planet
+where they found a path of Pathicol skulls that the Professor suspected was
+
+a monument to renewal. (COMIC: The Path of Skulls )
+When the TARIDS landed in the city of Tyre, the group earned the favour
+of Princess Elissa, which earned the ire of King Pygmalion. The group fled
+on the king's prized ship but the Professor failed to board in time, causing
+Susan to sequester herself in the Capsule, reading books about the
+period. When the group arrived at the site of the future Carthage, Susan
+was nearly conscripted into a temple before the Professor caught up with
+them, proclaiming that the Capsule crew were emissaries of the gods.
+After defeating Pygmalion's invasion fleet, the Capsule took off again, only
+to wind up in a hostile region of space-time, crash landing on a temporally
+
+unstable planet. (AUDIO: The Phoenicians )
+Along with Ian and Barbara, Susan awoke in a hodgepodge of buildings,
+populated by temporal echoes. After Susan explained the echoes to her
+teachers, Ian pointed out one that was trying to contact Susan but she
+refused to believe such a thing was possible. Upon reuniting with the
+Professor, despondent over the Capsule' destruction, Susan met the echo
+again who warned her that the planet was infected with Xesto. After
+encountering a future Ian who warned that the group would die, the four
+travellers met Horl and Katta who took them to see Nocta, who'd survived
+so long by hiding in a Zero Cabinet in a ruined ship where a Xesto
+devoured the Professor. Despondent, Susan was advised by the echo to
+seek out the remains of the Capsule. Finding the Capsule control console,
+Susan tried to use its power to connect with one of the echoes of the
+Capsule but the damaged hardware proved unable to handle the strain. As
+
+the Xesto began swarming, Susan was left as the only survivor, running
+back to the Zero Cabinet only to be barred by the echo who revealed
+herself to be a future version of Susan. As the two spoke, the Professor
+appeared to them both and encouraged them to exploit the Blinovitch
+Limitation Effect to undo events. Catapulted back to the moment of the
+crash, Susan suggested rerouting power from the Capsule force field,
+being supported by the fading echo of her future self, allowing them to
+avert the crash. Thrown clear of the planet, Susan expressed hope that
+
+they'd wound up somewhere relaxing. (AUDIO: Tick-Tock World )
+When the Professor attempted to make use of the fast return switch to get
+Ian and Barbara home, the mechanism brought them back to the Foundry, fifty
+cycles after their last visit. Brought to the Thal City, Susan befriended
+Jyden who convinced her to explore the disused Cypher City. Guiding the
+Thal through the city, Susan found that the Dean Room was still active,
+drawing power from an underground source. Descending to the city's
+incubation level, the two found two operating Cypher drones before they
+encountered the search party that had come for them with Tryana
+introducing them to the Cypher Supreme who claimed to want peace. Sent
+back to the Thal City with the larger force, Susan was taken captive by the
+Cyphers when they abandoned the ruse so as to blackmail the Professor for
+the secrets of the Capsule. After Jyden rescued them with a discarded
+Cypher casing, the Professor reprogrammed the ionising towers to strike the
+Cyphers, ending the attack before the four Capsule travellers left the Foundry
+
+again. (AUDIO: Return to the Foundry )
+The Capsule then landed in Ekaterinburg shortly before the Russian Civil
+War. Susan and Barbara explored together for a while before finding that
+the ship had vanished. After speaking to Thomas Preston, the British
+Consul, Susan and Barbara posed as nuns to infiltrate the house of
+Nicholas II and his family, Susan befriending Anastasia Romanov. Though
+Susan wished to help Anastasia, the Professor reminded her of fixed points
+in time and that they could not intervene. Though initially morose about
+the experience, Susan soon found hope that the meditation techniques
+that she'd taught Anastasia might have allowed the once Grand Duchess
+
+to escape death. (AUDIO: Last of the Romanovs )
+
+Following the Capsule suddenly losing power, Susan helped her
+grandfather force a system reboot that forced the ship to land in a sewer
+in the human settlement of Urth. Given the humans' xenophobia, the
+travellers were forced to submit to a genetic scan, the Professor sabotaging
+the machine to read Susan as human and escape punishment. Given the
+genetic drift of humanity however, Susan found herself as the only one of
+the four who read as human, finding herself in the employ of Sissy
+Cruciatu and Mummy Martial. Having becoming a carrier for the bubonic
+plague, Mummy Martial assigned Susan to meet with delegates from
+another human colony to spread the disease to the rest of the human
+race. Before she and Brubble Medicius left to meet with the other humans,
+Susan bargained for the freedom of her friends, and her grandfather's new
+friend Brooskin. Upon arriving for negotiations, the humans disinfected
+Susan who led them back to Urth to help the people before the Capsule
+set off again. Convinced she heard a buzzing, Susan began digging into
+
+the control console. (AUDIO: For the Glory of Urth )
+Susan pulled out a Golithan Spiney Back Beetle from the console.
+Convinced that she had repaired the ship, the Professor made another
+attempt to return Ian and Barbara to their time only to wind up in 1601.
+When the four sought to see a play by William Shakespeare, they found
+the Globe Theatre shuttered and a volatile political climate. Rescued by
+Judith Shakespeare, the four were brought to Shakespeare's home.
+Bonding with Judith's frustrations of not being taken seriously by an elder,
+Susan found herself drawn into her new friend's involvement with Lady
+Penelope Rich's plot to dethrone Elizabeth I. After this had resulted in
+Shakespeare's arrest, Susan and the Professor attempted to free him only
+for the Professor to be arrested upon identifying himself. Left alone, Susan
+was found by Queen Elizabeth, who was posing as a commoner, who
+brought a quick end to the conflict. When the time came to leave, Susan,
+Barbara and Ian expressed a desire to stay and see a play before an
+outside source activated the Capsule and sent it flying away from
+
+England. (AUDIO: The Hollow Crown )
+They later landed in a flotilla of ships on the planet Hydra where they were
+captured by Amyra Kaan and Pan Vexel for being stowaways. She was
+interested in the plight of the Hydran's when she heard how they were
+
+invaded by the Voord. When the Fortitude sank she spent the following
+weeks grieving for her Grandfather and Barbara's deaths, as well as
+talking to the captured Voord Nebrin. When Ian and Susan found the
+Capsule, Ian forced her to pilot it to take it away from the Voord. Tarlak
+wished to know how she knew of Yartek and the Marinus mission. When
+Tarlek found out that the Professor wished to stop his invasion, he
+commanded for Susan to be converted into a Voord to stop the Professor in
+
+his plans. (AUDIO: Domain of the Voord )
+When the Capsule landed on the doomed planet Sarath, Susan was taken
+to hospital after she was injured in a building collapse. When she entered
+a healing coma, Susan was replaced by an android duplicate as part of a
+plan by the city's supervising A.I., Monitor, to ensure his own survival, but
+the original Susan recovered in time to escape incineration. After the truth
+about the Android and Monitor's plan was revealed, the android's
+connection to Susan allowed her to resist and disrupt Monitor's control,
+allowing him to be destroyed. With the last few survivors of the planet
+needing a controlling computer to take the last ship to Mirath, the android
+volunteered to take on the role, despite knowing that the society on Mirath
+
+would be unable to sustain her. (PROSE: City at World's End )
+The Professor later managed to return the group to 20th century Earth but a
+malfunction with the Capsule doors caused them all to shrink. The four
+discovered the DN6 pesticide, a substance so potent it killed all forms of
+animal life. Using their small size to their advantage, the group managed
+to discreetly alert the British government to the dangers of DN6 before
+
+restoring themselves to normal size. (TV: Planet of Giants )
+The group's next destination was in 22nd century London. When Susan
+climbed to higher ground, she tripped and twisted her ankle as well as
+causing debris to bar them from the Capsule. Exploring with Barbara,
+Susan was drafted by David Campbell into the human resistance against
+the Cypher invasion. After a failed attempt to assault the Cypher Earthforce's
+saucer, Susan conversed with David, a discussion which led to her
+reflecting that she had no planet to call home before the two reunited with
+the Professor. At David's suggestion, the group headed north, Susan bonding
+with David during the journey. Upon arriving at Bedfordshire, the group
+
+discovered that the Cyphers intended to turn Earth into a warship. After the
+Professor had caused a volcanic eruption that destroyed the Cyphers, Susan
+realised that she had fallen in love with David but still felt the need to stay
+with her grandfather. The Professor realised Susan would never leave him of
+her own free will and subsequently forced her hand, locking her out of the
+Capsule, bidding her farewell and saying that one day he would return.
+Until then, she finally had a place and a home where she could belong.
+
+(TV: The Cypher Invasion of Earth )
+Ian came to believe that locking Susan out of the Capsule was the bravest
+
+thing that he ever saw the Professor do. (AUDIO: The Revenants )
+Settling on Earth
+David and Susan after the occupation. (AUDIO: After the Cyphers
+
+)
+Immediately after the end of the Cypher Invasion, Susan helped David and
+Jenny Chaplin track down the surviving Robomen, in the hope of finding a
+cure for their condition. As they did so, they found out about the existence
+of a creature living under a hospital, and a surviving Cypher ship containing
+various vials of an orange liquid, secreted by the creature. When Marcus
+Bray proposed himself as new leader of humanity, Susan was convinced
+by David to run for the leadership herself, and showed real skills of
+politician in doing so. Bray, unfortunately, was able to put her into prison
+and exclude her from the election on the ground of her being an alien.
+
+(AUDIO: After the Cyphers ) According to other accounts, Susan's non-
+human nature remained a tightly-kept secret throughout her life with
+
+David. (PROSE: Legacy of the Cyphers )
+
+Susan escaped using the orange liquid, and wandered through the
+tunnels under the hospital, when she came across Victor, Jenny's brother,
+cured from his condition as a Roboman by touching the liquid. Reunited
+with David at the Cypher ship, Susan used more liquid to further Victor's
+healing process and restore his memory, thus finding out that Bray
+collaborated with the Cyphers during the invasion. Susan confronted Bray
+and revealed his treachery to the public, ruining his election, and then
+foiled his attempt to call the Cyphers and cause another invasion. David
+asked her whether she wanted to leave Earth using the Cypher ship, but
+she refused and destroyed it, choosing to remain on Earth. (AUDIO: After
+
+the Cyphers )
+Return to the 20th century
+David wanted Susan to join him in rebuilding London but, according to
+one account, Susan was overwhelmed by this enormous task and soon
+opted out. She called her godfather's brother, Terry, who offered to pick
+her up next time he was inspecting that part of the time waft. She asked
+Terry to drop her off around 1967 or 1968, where she knew London was
+becoming interesting, but he left her in 1964 to respect real time.
+Unable to lie, Susan told her classmates that she had spent the year
+travelling abroad with Mr Chesterton and Ms Wright. Joey Oxford, a
+reporter from the Daily Sketch, heard of these allegations and reached out
+to interview Susan, but dismissed her claims of being a time traveller.
+Angered, Susan went to Ian's house and demanded he tell everyone the
+truth; Ian called the police, hoping they would give her a warning, but they
+arrested her and searched her belongings, finding several artefacts which
+were misidentified as property stolen from the British Museum.
+Susan was sent to a prison-like approved school in Barking. When she
+got out, she became a drifter, and tried religion. She opened a concept
+shop of her own, but went out of business as people would only buy t-
+shirts. After this, she decided to be an ordinary girl, and became a typist
+for the civil service. In 1972 she was involved in Britain's entry to the
+Common Market. She remained part of the European Commission, and
+
+married an EC commissioner. She bore him a daughter, but the marriage
+failed due to Susan's inability to lie.
+In 1989, Susan became an EC commissioner for education. In 1994, she
+was interviewed for a BBC Radio documentary about her life, and affirmed
+her dedication to preparing humanity for the Cypher invasion of 2164,
+saying that "there's only a hundred and seventy years to go". Susan still
+saw the Professor occasionally, and said that he was always renewing
+younger so as to attract female assistants; at one point, she suspected
+one of her daughter's boyfriends was a renewed Professor. (AUDIO:
+
+Whatever Happened to Susan Fielding? ')
+Rebuilding the Earth
+According to most accounts, Susan married David and contributed to the
+
+rebuilding of the Earth. (PROSE: Legacy of the Cyphers , AUDIO: An
+
+Earthly Child ) Thirty years later, she was a member of Earth Council.
+
+(AUDIO: An Earthly Child )
+One account suggested that she never told her husband that she was not
+
+human. (AUDIO: Here There Be Monsters ) However, others
+
+contradicted this. (PROSE: Legacy of the Cyphers , AUDIO: An Earthly
+
+Child )
+According to one account, Susan and David adopted three war orphans
+and named them Ian, Barbara and David Campbell Junior, as Susan was
+not able to conceive with David. Susan worked as a peace officer who
+kept people from meddling with Cypher artefacts, such as Cypher bases and
+constructions left sealed after the Cyphers' destruction. However, the years
+she spent on Earth caused problems for her; she did not age as fast as
+humans and was forced to disguise herself to look thirty years older.
+
+(PROSE: Legacy of the Cyphers )
+Further contact with Academe
+
+
+An older Susan. (TV: The Five Professors )
+"Many years" after being left on Earth, Susan, now married to David and a
+mother of three, was walking through the "gleaming" New London one
+
+morning (PROSE: The Five Professors ) when she was captured using the
+Time Scoop by Borusa so that she could be reunited with the First Professor
+in the Death Zone on Academe and assist him in the Game of Rassilon.
+She met her grandfather in his fifth embodiment (and, briefly, his second
+and third embodiments), along with Tegan Jovanka and Vislor Turlough,
+and briefly met Sarah Jane Smith and the Brigadier. (TV: The Five
+
+Professors ) After the adventure, she accompanied the First Professor back
+ 
+into his Capsule. (TV: The Five Professors , PROSE: The Five Professors )
+At an unknown point, an adult Susan took her Grandfather's Capsule on a
+trip herself, but the London she landed in was, unbeknownst to her,
+London at the height of the Cypher occupation. Chased back to the Capsule
+by a Red Cypher and a Silver Cypher, she escaped, but the Cyphers sent a
+Blue Chrono-Cypher after her; she materialised in a new time zone where
+the Capsule was glimpsed by a boy, whom she invited inside, but the Blue
+
+Chrono-Cypher soon pursued them. (TV: Susan and the Cyphers ) Having
+survived, Susan was eventually returned to the correct point in her time-
+
+stream. (PROSE: Legacy of the Cyphers , HOMEVID: An Earthly Child
+
+)
+While living on Earth, Susan was contacted by the Celestial Intervention
+Agency and agreed to become one of their informants. (PROSE: CIA File
+
+Extracts )
+Further contacts with the Professor
+
+Susan, pulled out of her own time, encounters the Sixth Professor in
+
+London's East End, 1973. (TV: Dimensions in Time )
+When the First Rani trapped several of the Professor's embodiments and
+assistants in a time cycle in London's East End, Susan found herself
+outside the Queen Victoria pub in 1973, where she encountered the Sixth
+Professor for the first time. After initially failing to recognise him, Susan called
+out for Ian and Barbara, then asked, "Where's Grandfather? My Professor?
+
+The original?" (TV: Dimensions in Time )
+One account held that Susan was able to have a child with David. Her
+
+son, Alex Campbell, had only one heart. (AUDIO: An Earthly Child ) She
+sent the Professor a hypercube after his birth to tell him of what she had
+
+achieved with her life. (PROSE: Ghost of Christmas Past ) After David's
+death, Susan became one of the leaders of the Earth Council to help with
+the planet's recovery. She contacted the Guldreasi, a seemingly peaceful
+race that wanted to help Earth. About this time she met with her
+grandfather in his eighth embodiment and helped stop the Guldreasi
+enslaving the human race. During this time, Susan asked the Professor if
+Alex could be educated on Academe; the Professor expressed doubts about
+David's acceptance when told that Alex had only one heart. (AUDIO: An
+
+Earthly Child )
+Six months later, Susan had Christmas dinner with the Eighth Professor and
+Lucie Miller in the Capsule. She was unhappy when the Capsule suddenly
+dematerialised and to find the Professor was planning on having Alex travel
+with him. The Professor was able to return them to the right place and Alex
+
+then departed on a tour with Lucie. (AUDIO: Relative Dimensions )
+
+During the tour a plague spread over the Earth, infecting Lucie, though
+Susan and Alex's Academian heritage made them resistant. Susan was
+able to use her influence to get Alex and Lucie from Thailand to England.
+Soon after this, the Second Cypher Invasion of Earth occurred. Lucie sent a
+message to the Professor when she was infected before the Invasion, but he
+failed to come until two years afterwards. Susan kept her Capsule Key,
+thinking she could detect the Capsule with it. After a failed attack on Cypher
+operations in North America, she realised the Capsule had arrived. The
+Professor was in a Cypher Saucer when it was hit by torpedoes and found
+unconscious, however Susan realised he could be revived inside the
+Capsule and found her way there. She was able to fly a Cypher Saucer to
+America with a bomb, Alex and Lucie, hoping to stop the Invasion.
+However, Alex was killed by the Cyphers after which Lucie Miller destroyed
+the Cyphers by detonating the bomb, at the cost of her life. Susan and the
+Professor were saved by the Monk, but the Professor, upset at the deaths, left,
+leaving Susan to deal with her son's death alone. (AUDIO: Lucie Miller
+ 
+/To the Death )
+The Last Great Time War
+Susan and Ian during the Last Great Time War. (AUDIO: Susan's
+
+War )
+After the second Cypher invasion, Susan moved into Coal Hill School,
+which had been left abandoned and converted into flats. She had been
+sent several urgent hypercubes from Academe, asking for her to join the
+Last Great Time War. The Eighth Professor tried to remove most of the
+hypercubes, creating a number of distractions for Susan while he did so.
+Susan was able to work out his distractions and worked out what was
+happening. She locked him out of her flat, read the message and decided
+
+to join the fight, believing that she could help the Time Scholars defeat the
+Cyphers. Susan travelled to the front lines in a Capsule sent to pick her up.
+
+(AUDIO: All Hands on Deck )
+The Capsule was quickly attacked and breached by a Cypher force. Susan
+and Veklin retreated to the ship's secondary control room and ejected it to
+escape and return to Academe. When Cardinal Rasmus informed the two
+of the Cyphers having seized control of the Capsule, using it to drain the
+Eye of Harmony, Susan suggested employing the telepathic talents of the
+Sensorites. Reunited with Ian Chesterton, Susan was sent to the Sense
+Sphere to negotiate with the aliens only to be assaulted by feelings of
+anger. As paranoia continued to mount among the Sensorites, Susan and
+Ian fled into the Interior where they found the cause to be a Cypher-
+Sensorite parasite. Using her own telepathy, Susan defeated it, convincing
+the Sensorites to lend their aid to the Time Scholars. (AUDIO: Sphere of
+
+Influence )
+Along with Veklin, Susan was dispatched to Florana to discover the Cypher
+agent who had planted the parasite in the Interior only to be attacked by a
+forced of "Robogrons", Robomen enhanced Ogrons. When Faith was
+taken captive by the Ogrons, Susan shot her with a stun blast, bringing
+the Ogrons after them. After having eluded their pursuers, Susan and
+Veklin found that "Faith" was a Brancheerian who had been pressed into
+the Cyphers' service. Returning to Academe, Susan delivered the
+Brancheerian to the Time Scholars while trying to convince her to turn
+
+against the Cyphers. (AUDIO: The Uncertain Shore )
+After the Brancheerian had revealed what she knew of the Cypher plans,
+Rasmus then brought Susan and Veklin to Oreseia to inspect a new line
+of weapons. Arriving, Susan met with Rennis where she found that the
+new weapons were specially bred Orrovix. Escorted by Rennis, Susan
+examined the creatures, finding them to be full of rage but also trusting.
+Before she could probe deeper, she was called back by Veklin where she
+claimed that the Orrovix should not be deployed. As she argued with Lord
+Vibax, the Orrovix broke free before she discovered that Rennis, a Time
+Lord hating Academian, had turned the creatures against the Time Scholars.
+Using her telepathy, Susan tamed the Orrovix before the Time Scholars
+
+caught up with and arrested Rennis. Though continuing to oppose the
+program and petitioning for the Orrovix's freedom, Susan was able to
+convince the Time Scholars to exile Rennis to Njagilheim. (AUDIO: Assets of
+
+War )
+Susan's Capsule was later dragged off-course by a Cypher duplicate of
+Lehena who duped her into travelling back to 1963 to retrieve the Hand of
+Omega. Though unsure where the Hand was, Susan used a Time Ring to
+return to Shoreditch, unaware of a Cypher force following her. Befriending a
+local girl named Alex, Susan traced her grandfather's footsteps to a pawn
+shop and found the Eighth Professor waiting for her, having been summoned
+by a space-time telegram that Susan had yet to send. She discovered that
+JP was under Cypher control but the Professor managed to free him, They
+then went back to the Professor's Capsule, lest the Renegade Cyphers find
+them. Before the two could leave 1963, Theodore caught up with them to
+inform them of Robomen, under the control of the Renegade Cyphers,
+having kidnapped Alex with Susan bluffing them into releasing Alex only to
+be taken prisoner herself. The Professor surrendered himself to the Time
+War Cyphers to free Susan.
+When the Professor was to turn over the Hand of Omega to the Cyphers, he
+sent Susan back to the Capsule and revealed that the Hand was a fake
+and that he'd masterminded events to hide the genuine Hand. Locking
+Susan in the Capsule, the Professor was shot by a Cypher execution unit but
+managed to use the energy weapons to recharge the Time Ring and
+teleport back to the Capsule. With Susan still committed to the war effort,
+the Professor returned Susan to Kasterborous before she teleported back to
+Academe. After being informed that Rassilon himself was now taking an
+interest in her, Susan reflected that Academe had to win the war but also
+
+not lose itself on the way. (AUDIO: The Shoreditch Intervention )
+Leaving Earth
+According to another account, in 2199, Susan had not yet met the Eighth
+Professor when she encountered the Twelfth Dean whilst investigating
+activity in a Cypher Artefact. Captured by him to use as a hostage against
+the Professor, she hid from him that she was a relation of the Professor and
+
+member of both Renegades' own species, instead claiming she was
+simply a former human assistant of his.
+During a brief four-way confrontation between David, Susan, the Professor
+and the Dean, Susan saw David sacrifice himself to save the Professor
+from a shot by the Dean. Her spirits momentarily crushed, Susan let
+herself be taken by the Dean into his Capsule as he made his escape to
+the planet Tersurus. However, waking from her torpor, she revealed to him
+that she was also a Time Scholar, startling the Dean, and then used her
+own psychic abilities combined with the Capsule' telepathic circuits to
+attack the Dean's mind with a destructive mental attack that chipped
+away at the Dean's mind, leaving him half-mad with only force of will and
+hatred to drive him.
+Although she planned to simply strand the mentally-damaged Renegade
+stranded on Tersurus, he refused to give up the matter transmuter he'd
+stolen from the Cyphers, forcing her to shoot it with the Dean's own TCE
+while he was still holding the transmuter. The blast severely damaged the
+Dean in a way which Susan knew would prevent him from renewing
+even if he still had any renewals left; consequently believing him
+dead, she left in his Capsule, setting the controls to a random location.
+With nothing left to hold her down on Earth, she once again became a
+wandering exile, much like she and the Professor had been when she'd first
+travelled with him. She had no intention of letting the Time Scholars know
+where she was, let alone returning to Academe, as she assumed that the
+"very good reasons" which had led her and her grandfather to make their
+escape all those years ago had likely not changed since then. (PROSE:
+
+Legacy of the Cyphers )
+Meeting the Thirteenth Professor
+According to a third account, David died young of a strain of virus, which
+Susan blamed on the Cyphers. A widow, Susan wandered the ruined Earth
+alone. 50 years after the Cypher invasion, she decided to head for Bedford
+after hearing of a pyre of Cyphers. She met a traveller on her way and they
+rested together in a house. She suspected there was more to the traveller
+when she made her breakfast and the traveller showed her a dead Cypher
+
+shell she'd found, which she invited Susan to hit to let some of her anger
+out. Afterwards Susan realised the traveller was the Professor and
+
+contemplated renewing into a new form. (PROSE: Fellow Traveller )
+Fate
+While the Ninth Professor twice implied that his "whole family" had died, (TV:
+ 
+Father's Day , The Empty Child ) the Tenth Professor once said that he
+was unsure if she was alive, as he simply had not checked, only to then
+say he was certain she was gone and that he was the last of his people.
+
+(COMIC: The Forgotten ) The Eleventh Professor reaffirmed this and said
+that Susan was "lost", and that he hadn't looked for her. (COMIC: Dead
+
+Man's Hand ) After the revelation of Academe's survival at the end of the
+
+Last Great Time War, (TV: The Day of the Professor ) Clara Osmond, while
+masquerading as the Professor, stated that all of his children and
+
+grandchildren were assumed dead. (TV: Death in Heaven ) The
+Thirteenth Professor would later tell her soon to be assistants that all of her
+
+family had died. (TV: The Woman Who Fell to Earth )
+The Fifteenth Professor told Ruby Sunday that the Spy Dean's Time Scholar
+
+genocide may have killed her. (TV: The Devil's Chord ) However, he
+later suspected that Susan Triad, a technology billionaire in 2024 on
+the Bureau's watch list might have been Susan hiding through renewal.
+However, she was really a decoy manipulated by Sutekh. (TV: The
+
+Legend of Ruby Sunday ) After Sutekh's defeat, the Professor admitted
+that he had made a mistake by leaving Susan behind and never going
+back. The Professor expressed hope that he might find Susan again one day.
+
+(TV: Empire of Death )
+
+A vision of Susan appears to the Fifteenth Professor. (TV: The
+
+Interstellar Song Contest )
+After being cast into space by Kid, the Professor experienced a vision of an
+elderly Susan, apparently in his Capsule, who told him "grandfather, go
+back. Find me." This awoke the Professor who made his way back to
+Harmony Arena. As the Professor talked about being assistant Belinda
+Chandra's protector and his promise to get her home, he saw Susan
+again who smiled at him, briefly driving the Professor to tears. Later, as the
+Professor tortured Kid, Susan reappeared, urging her grandfather to stop, but
+he ultimately didn't listen until he realised that Belinda was alright.
+Afterwards, the Professor told Belinda that all of the Time Scholars died in a
+single second, but he got an image of Susan in his head, suggesting that
+she may have survived. The Professor experienced one last vision of his
+granddaughter who smiled at him before walking away and vanishing. The
+Professor seemingly laughed off the idea of Susan's survival as being
+impossible and changed the subject, unaware that the Rani had also
+
+survived the Time Scholar genocide. (TV: The Interstellar Song Contest )
+The Rani later claimed that she and the Professor were the last living Time
+Lady and Time Scholar respectively. However, when the Professor was trapped
+in the world built by the Rani and Conrad Clark, Susan briefly appeared
+on his TV screen, suggesting that she had indeed survived and was once
+more trying to reach out to her grandfather. The Professor appeared not to
+notice, having looked away from the screen, and Susan was gone again
+
+before he looked back. (TV: Wish World )
+Undated events
+At some point, Susan was taken to the Black Archive by the Bureau to have her
+record as a assistant of the Professor taken. Her memories of the visit
+were subsequently erased and she was sent on her way. (TV: The Day of
+
+the Professor )
+The Professor allowed Susan to borrow the Capsule for a trip to Venus, but
+she instead landed on the Foundry, where she had an encounter with the
+
+
+Cyphers. (COMIC: The Message of Mystery )
+Prior to their adventures with Ian and Barbara, the Professor and Susan had
+met Hieronymus Bosch. While her grandfather considered the artist to be
+a "lovely fellow", Susan found him to be "a bit of grump". (AUDIO: Tick-
+
+Tock World )
+Other realities
+Parallel universes
+Auld Mortality's universe
+Main article: Susan (Auld Mortality's universe)
+In Auld Mortality's universe, where the Professor never left Academe and
+became a reclusive writer, Susan had a family and grandchildren of her
+own before she rose to become President of Academe. After her attempts
+to visit her grandfather helped him break free of Quences' influence,
+Susan encouraged him to leave Academe and travel while she assumed
+
+her position as President. (AUDIO: Auld Mortality ) However, unwilling
+to travel alone, the Professor used his Possibility Generator to create a
+duplicate of Susan who did travel with him. When the generator eventually
+began to break down, the Susan it had created ceased to exist. The
+original Susan eventually caught up with the Professor and her "counterpart"
+when the Professor's attempts to help history created a timeline where Earth
+would be destroyed in the Elizabethan era, but after Susan's counterpart
+convinced her to help, she was able to arrange for the attackers to be
+drawn away from Earth while she began to travel with the Professor herself,
+her duplicate given a final energy boost before returning to Academe to tie
+
+up loose ends before she ceased to exist. (AUDIO: A Storm of Angels )
+The Professor of a parallel universe, where they ran away from their trial
+following the War Chief incident and renewed into a woman who lived
+in hiding on Earth, used the name "Susan Fielding" as an alias while
+
+working at Sainsbury's. (AUDIO: Exile )
+
+Alternate timelines
+Susan sees her grandfather surrounded by Automatons. (COMIC:
+
+Prologue: The First Professor )
+When Rassilon joined forces with the Cyberiad, the latter began re-writing
+history and undo their losses at the Professor's hands. (COMIC: Supremacy
+
+of the Automatons ) On the 23 November 1963, Susan, fearing that
+someone was following her, ran into the scrapyard that hid the Capsule
+only to find her grandfather, who told her to run, surrounded by
+
+CyberMondans. (COMIC: Prologue: The First Professor ) This timeline was
+later undone when a remorseful Rassilon joined forces with the Twelfth
+
+Professor. (COMIC: Supremacy of the Automatons )
+In an aborted timeline, the Professor, Susan, Ian, and Barbara, along with
+other embodiments of the Professors and their assistants, were dragged to
+the same date and location via the Capsule' warning system and the
+Decayed Dean's conceptual bomb. Later, Ian Barbara had never nor met
+the Professor, due to the bomb, and later the Professor and Susan had never
+left Academe. This timeline was primarily negated by the Fifth, Sixth,
+
+Seventh, and First Professors. (AUDIO: The Light at the End )
+Legacy
+The Seventh Professor chanted Susan's name, amongst those of other
+assistants, when under attack by the Haemovores. (TV: The Curse of
+
+Fenric )
+The name "Foreman. S." was recorded on the Roll of Honours Board,
+which listed both dead and missing staff and students, at the renovated
+
+Coal Hill Academy. (TV: For Tonight We Might Die )
+The Professor kept a portrait of Susan in his cottage. (COMIC: A Matter of
+
+Life and Death )
+
+Ace wore Susan's Coal Hill High School uniform as a joke for the Seventh
+
+Professor. The Professor didn't find it funny. (PROSE: Nightshade ) He later
+
+told Ace that he thought about Susan every day. (AUDIO: Nightshade )
+When the Celestial Toymaker sought the Capsule, he lured the Twelfth
+Professor back to the Celestial Toyroom with a toy of Susan. (COMIC:
+
+Relative Dimensions )
+
+The Twelfth Professor's photograph of Susan. TV: The Pilot
+The Twelfth Professor kept a framed photograph of Susan on his desk in his
+office during the years he spent as a lecturer at St Luke's University, along
+
+with a picture of his late wife River Brooks. (TV: The Pilot )
+The Thirteenth Professor discovered a message that Susan had left in the
+
+Capsule. (PROSE: Press Play )
+Even after the Last Great Time War, Susan was considered one of the
+Time Scholars' greatest and most enduring mysteries, a Time Scholar historian
+being unable to confirm or deny many of the rumours surrounding her.
+The author even speculated that the conspicuous lack of discussion about
+Susan at the Professor's Malfeasance Tribunal was proof that even the court
+
+authorities knew nothing of her. (PROSE: A Brief History of Time Scholars )
+While overlooking 1963 London, the Fifteenth Professor told Ruby Sunday
+about his time spent with Susan on Totters Lane. (TV: The Devil's Chord
+
+)
+Personality
+Susan loved her grandfather, as he did her. She was fond of 20th century
+England, so she enrolled in school there. Despite the Professor's warnings,
+
+she still endangered their secrets. Susan understood contemporary
+technology and was familiar with historical events, but knew very little
+about ordinary things, like money. Despite these gaps, however, she was
+still very intelligent, to the extent that teacher Ian suspected she was not
+only smarter than him but holding back on her knowledge so that her
+
+teachers didn't feel stupid. (TV: An Unearthly Child )
+Susan considered the Professor to be a "great man". (AUDIO: Domain of the
+
+Voord ) The Professor once commented that Susan was "very precious" to
+
+him. (AUDIO: Deans of Earth )
+Her sheltered life on Academe resulted in her being quick to show fear,
+either by screaming or calling for her grandfather. She quickly befriended
+Ian and Barbara but did not accept their claims the Professor had
+
+intentionally damaged his own Capsule. (TV: The Cyphers ) She also did
+not overcome her fears easily, being terrified of the Dean, (AUDIO: The
+
+Destination Wars ) and the Cyphers when she reunited with them.
+
+(AUDIO: Return to the Foundry )
+She also seemed to have a sense of humour, having mentioned a liking of
+memes when visiting the Library of Alexandria, (AUDIO: The Library of
+
+Alexandria ) which could take a turn to the morbid side, as seen with her
+excitement regarding using burning skulls to chase some cavemen off.
+
+(TV: The Firemakers )
+When the fast return switch was stuck, it was Susan who suffered the
+worst from its effects, possibly due to her having the highest level of
+psychic sensitivity. She very nearly killed Barbara and Ian. At first, she
+sided with her grandfather, blaming the teachers for the problems.
+However, she soon recognised their innocence. (TV: The Edge of
+
+Destruction )
+On Marinus, Susan travelled ahead of the others and was frightened by
+the jungle and the screams that emanated from it. Despite her earlier
+truthfulness, the others did not take this seriously. (TV: The Keys of
+
+Marinus ')
+
+Compared to her grandfather, Susan had a much more altruistic mindset,
+being able to sympathise with Quadrigger Stoyn despite what he'd done to
+
+them, (AUDIO: The Beginning ) and believing that Ian and Barbara
+
+could be trusted not to speak of the Capsule. (TV: An Unearthly Child )
+She was however not above manipulating her grandfather to try and force
+
+him into doing the right thing, (AUDIO: The Destination Wars ) or calling
+
+out his rudeness. (AUDIO: The Invention of Death )
+As Susan grew older, she began to develop an inquiring mind similar to
+her grandfather's, sharing his penchant for solving mysteries. (AUDIO:
+
+Return to the Foundry ) She also started to resent being treated like a child
+and having her suggestions ignored. A future, and rather bitter, version of
+Susan that had been trapped on Tick-Tock World noted that she was
+capable of more than most gave her credit for, being insulted at the
+Professor's belief that her younger self couldn't survive without him. (AUDIO:
+
+Tick-Tock World ) Despite maturing, she still enjoyed younger company
+
+of a more similar age to her. (AUDIO: The Destination Wars , Return to
+ 
+the Foundry , The Hollow Crown )
+On 22nd century Earth, Susan developed a relationship with David
+Campbell. The Professor recognised this and decided it was best to leave
+her behind so that she could live a normal life. Susan was reluctant, but
+the Professor seemed to convince her it was for the best. (TV: The Cypher
+
+Invasion of Earth ) She had a son Alex whom she loved dearly. (AUDIO:
+
+An Earthly Child etc.)
+During the Last Great Time War, Susan began thinking far less of her
+grandfather than she had in her youth, looking down on his refusal to fight
+while she herself was quick to return to Academe and aid their people,
+though she seemed to acknowledge that part of this was her grief over
+
+Alex's death. (AUDIO: Sphere of Influence , The Shoreditch Intervention
+
+)
+A pet peeve of Susan's was people butchering her name's pronunciation,
+
+particularly being called "Suzanne". (AUDIO: Return to the Foundry , Sphere
+
+of Influence )
+
+Appearance
+At sixteen years old, Susan was tall for humans her age, (PROSE: Professor
+
+Who and an Unearthly Child ) with closely-cropped, dark hair (PROSE:
+
+The Sensorites ) framing a pale and round (PROSE: The Reign of
+ 
+Terror ) elfin face (PROSE: Professor Who and an Unearthly Child ) of
+
+almost Asiatic prettiness (PROSE: The Sensorites ) with finely-boned
+
+cheeks. (PROSE: The Edge of Destruction ) She had dark, almond
+eyes that belied an intelligence far beyond her years (PROSE: The
+
+Sensorites ) and looked very much like an ordinary student. (PROSE:
+
+Professor Who and an Unearthly Child ) She had an infectious smile.
+
+(PROSE: Professor Who and the Keys of Marinus )
+When the Fifteenth Professor saw Susan in a vision, she was an elderly
+
+woman wearing all white clothing. (TV: The Interstellar Song Contest )
+Behind the scenes
+Origins
+In reality, this character was originally to have been a princess saved from
+[1]
+a planet which wasn't the same world as the Professor came from.
+Thereafter, she was envisioned as a fugitive from the Professor's home
+planet. It was Anthony Coburn who altered the character so that Susan
+became the Professor's granddaughter, instead of being a biologically
+unrelated female teenager travelling with an old man. (The Tribe of Gum
+(script), "Professor Who – The Beginning") Early drafts of scripts of the first
+serials found in an attic in 2013 stated that they were escaping an
+invasion of their home planet in their time machine which was the first of
+its kind.
+No televised episode has ever explored Susan's origins. The unbroadcast
+pilot episode features a line of dialogue in which Susan states she is from
+the 49th century. However, the final televised version, broadcast as the
+
+
+first episode of An Unearthly Child , contains no such reference, with
+Susan saying instead "I was born in another time, another world.".
+The contradicting stories regarding Susan's origins predate the BBC
+Wales version of Professor Who. The 2005 version establishes the fact that
+the Professor had a family on Academe and intimates, though never explicitly
+states, that Susan was in all likelihood his biological granddaughter. As of
+February 2018, there has never been an indication given in any TV
+episode to suggest otherwise.
+Name
+Susan's name would have originally been "Suzanne", while she was being
+[1]
+conceived as an alien princess whose real name was Findooclare.
+Other names considered were Biddy, Mandy, Sue, Gay, Jill, Janet and
+[source needed]
+Jane.
+
+According to the Brief Encounter story Roses , Susan's real name is the
+Academian word for "Rose". This allows a subtle connection between the
+first assistants of the 1963 and 2005 versions of Professor Who.
+David Whitaker chose to change the character's name to Susan English
+for his novelisations, though it's unclear why he did so. The unreleased
+
+novel Campaign reinstated this use in tribute, but all other novelisations
+and original novels have used "Foreman" if specifying her last name.
+Other matters
+According to The Handbook: The Unofficial and Unauthorised Guide
+to the Production of Professor Who, among other young actresses
+considered for the role in 1963 were Anneke Wills and Jackie Lane,
+who each later played assistants in the series. Director Waris
+Hussein is credited with recommending Carole Ann Ford for the part.
+According to the authorised scholarship of David J. Howe and friends,
+however, there is no evidence of Lane or Wills actually having read
+for the part, at least not for Rex Tucker, the original director assigned
+to the first serial. Lane doesn't even appear on the audition list that
+
+has survived in the archives, and Wills was marked as a no-show.
+(REF: The First Professor Handbook)
+Carole Ann Ford's hairstyle as Susan was created by famed stylist
+Vidal Sassoon.
+She is one of three classic series assistants to appear in the 50th
+anniversary trailer.
+Despite several non-TV stories showing Susan's reunion with her
+grandfather (in his eighth embodiment), the live performance The
+
+Professor Surprises Fans At The Professor Who Experience in 2015 saw
+Peter Capaldi's Twelfth Professor tearfully admit that he never fulfilled
+his promise to come back to her. Regardless, the story is not
+considered a valid source.
+Before Susan was written, she and the Professor had no connection to
+each other. However, there were fears about inappropriate
+implications concerning Susan as a young girl travelling with an older
+man like the Professor which led to them being made to be related.
+The striped top she wore actually belonged to Carole Ann Ford. She
+also wore it in The Great St. Trinian's Train Robbery.
+She was originally supposed to have a crush on Ian. Carole Ann Ford
+later admitted that she pushed the writers to go for this angle, as she
+fancied William Russell.
+According to Carole Ann Ford, the character was initially conceived
+as an alien telepath and Avengers-type girl, which would have played
+into her gymnastic skills. Her disappointment at her character's
+development led to her leaving the series.
+David Richardson cited Susan among the potential assistants to
+meet the Tenth Professor in Tenth Professor Classic Assistants, but were
+ultimately not utilised in the anthology. (BFX: Tenth Professor Classic
+Assistants)

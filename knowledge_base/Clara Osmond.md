@@ -1,0 +1,3145 @@
+Clara Osmond
+Contributors to Capsule
+Clara Osmond Other realities Non-valid sources Gallery Appearances Talk
+Clara Osmond was a assistant of the Eleventh and Twelfth Professors. On
+several occasions, while the "real" Professor was absent or incapacitated,
+she assumed the mantle, promise and name of "the Professor", with the
+Twelfth Professor acknowledging on one of these occasions that she "made
+a mighty fine Professor".
+According to the Professor, she was "impossible" due to their meetings
+previously in his personal timeline, with two such encounters where he
+saw her die. Though assured by the empathic psychic Emma Grayling
+and the Capsule scanner that Clara was just an "ordinary girl", the Professor
+couldn't believe that to be true and thought her to be "the only mystery
+worth solving".
+While a physically ordinary human woman from the 21st century, Clara
+chose to enter the Professor's timeline in his tomb on Trenzalore in order to
+try to reverse the damage done to his timeline by the Great Intelligence.
+This caused the time winds to shatter her into millions of what River Brooks
+referred to as "echoes" or "splinters" that were dispersed throughout his
+personal timeline. These echoes corrected the damage caused by the
+Great Intelligence but were not the original Clara. She was trapped in the
+Professor's time stream but rescued shortly thereafter.
+After Trenzalore, Clara became a school teacher, though she still travelled
+with the Professor, meeting the Professor's War and Tenth embodiments. She
+was with him when he renewed into his twelfth embodiment, having
+encouraged the Time Scholars to grant him a new regenerative cycle and
+continued to travel with him thereafter.
+
+Clara later met and fell in love with fellow schoolteacher Danny Pink.
+However, she lied to him about giving up her travels with the Professor; only
+to lose him to a car accident, and again to Melissa despite her best efforts to
+bring him back.
+After the loss of Danny, Clara became less attached to Earth and began to
+copy the heroic aspects of the Professor's persona; this caused her to
+become increasingly reckless, as she believed he would always have a
+plan.
+Clara's heroics eventually cost her greatly. While trying to prove Rigsy's
+innocence of a false murder accusation she took a Chronolock, which
+killed the one branded, from him. The Raven, who was originally set to kill
+Rigsy, killed her instead. She was later extracted from her own fixed point
+of death in her timeline by the Professor using an extraction chamber on
+Academe. In her resurrected form, Clara had none of the usual aspects of
+the living, such as breathing, having a pulse or even ageing, instead being
+stuck "between one heartbeat and the next".
+The Professor then stole a Capsule and escaped Academe, travelling to the
+end of the universe in an attempt to fully bring Clara back, proving to be
+ineffective, however. The Professor planned to wipe Clara's memory of ever
+travelling with him, yet instead, in a turn of events, the Professor lost his
+memories of Clara. She then left in the other Capsule, planning to use it to
+travel "the long way round" back to Academe, with Ashildr and Willa
+Twiston for company.
+Biography
+Childhood
+
+Clara was born in Blackpool (TV: Robot of Sherwood ) on 23 November
+ 
+(TV: Dark Water ) 1986 (TV: Death in Heaven ) to Dave and Ellie
+
+Oswald. (TV: The Rings of Akhaten ) She liked to receive travel books
+and science kits for Christmas rather than hair products (TV: Last
+
+Christmas ) and loved attending Sunday school, which was taught by a
+"nice lady teacher" in a small church room that smelt of oak polish and
+
+
+had felt-tip colouring on the walls. (PROSE: Into the Nowhere ) Ellie told
+her not to speak to strange men, advice which she ignored. (WC: The
+
+Bells of Saint John: A Prequel )
+As a child, Clara visited many National Trust houses (AUDIO: The House
+
+of Winter ) and went to the Blackpool Tower circus with her
+
+grandmother. (PROSE: All the Empty Towers ) Her role model was Amy
+Johnson, whom she learnt about at school, (COMIC: A Wing and a Prayer
+
+) and she always wanted to meet Robin Hood. (TV: Robot of Sherwood
+ 
+) She was once stung by a wasp. (PROSE: The Crawling Terror ) She
+met the Eleventh Professor when she accidentally kicked a football at his
+head in a park whilst she was with her parents, after which Dave
+remarked that she wanted to be Bryan Robson. (TV: The Rings of
+
+Akhaten )
+Clara often lost things, including her "best pencil", her school bag, her
+grandmother and her mojo, which she managed to get back. Whenever
+she lost something, she would go to a quiet place, close her eyes and
+
+remember where she left it. (WC: The Bells of Saint John: A Prequel )
+Her worst fear was getting lost herself and she had a number of
+nightmares about it. On a bank holiday Monday when she was about six,
+she got lost on Blackpool Beach and was eventually found by her mother.
+They then went for fish and chips and returned home where Ellie told
+
+Clara that she would always find her. (TV: The Rings of Akhaten )
+
+Clara as a child (WC: The Bells of Saint John: A Prequel )
+Clara met the Eleventh Professor a second time, earlier in his timeline, in a
+park and advised him to go somewhere quiet to think about how to find his
+lost friend instead of waiting for destiny, both of them being unaware that it
+
+was her that he was looking for. (WC: The Bells of Saint John: A Prequel
+ 
+) He followed her advice. (TV: The Bells of Saint John )
+Dave took Clara to a restaurant with a glass floor at the top of a tower
+block near Southport when she was nine. Although he assured her that
+the floor was "safe as houses", she was scared when two boys started
+jumping up and down on the glass, swearing and shouting that they were
+going to break it, and she remained nervous about heights and glass
+
+floors afterwards. (PROSE: Normality ) She also stopped believing in
+Santa Claus at the same age, later explaining that she was growing out of
+
+fairy tales. (TV: Last Christmas )
+Ellie read to Clara from her copy of 101 Places to See. When Clara was
+nine, she wrote her own name inside the book and updated it with her age
+over the years. Inside of it was kept the leaf that blew into Dave's face on
+
+the day that he and Ellie met, (TV: The Rings of Akhaten ) which she
+
+would later refer to as "page 1". (TV: The Bells of Saint John )
+Clara attended St Mary's School and played on the rugby team. (COMIC:
+
+Unearthly Things ) In 2001, at the age of fourteen, she let the leaf blow
+away in the wind in frustration after her mother told her she could not stay
+over a friend's following a Halloween party. She met the Professor again at
+the party and they briefly ventured to an alien forest where a wolf guided
+her to the leaf before they returned to Earth. Having been aiming for Clara
+during her time as his assistant, the Professor wiped her memory of the
+adventure to preserve the timeline. (PROSE: Clara Osmond and the
+
+Enchanted Forest )
+Young adulthood
+
+Clara passed her driving test on her first try. (COMIC: The Fractures )
+
+She was able to ride a motorcycle. (TV: The Day of the Professor )
+Although she was not always successful, she enjoyed making soufflés
+and followed the recipe used by her mother, who told her that the soufflé
+was the recipe rather than the soufflé itself. (TV: The Name of the Professor
+
+)
+
+On 5 March 2005, Ellie died. Taking 101 Places to See with her, Clara
+visited Ellie's grave with her father, unaware that the Eleventh Professor was
+
+watching her from a distance. (TV: The Rings of Akhaten ) She was
+
+angry following her mother's death. (AUDIO: The Gods of Winter ) She
+wore her mother's ring, which was precious to her, (TV: The Rings of
+
+Akhaten ) and remembered her as a great woman. (TV: The Name of
+
+the Professor ) She went on to graduate from university. (TV: The Rings of
+
+Akhaten )
+Clara was among the billions of people across the world who briefly
+[nb 1]
+became part of the Dean Race circa the 2000s. (PROSE: The Day
+
+of the Professor ) She once found a second-hand book in a shop with a
+dedication reading, "There's no larger responsibility than great potential",
+a phrase which stuck with her and made her want to look after children.
+
+(PROSE: Normality )
+In 2012, Clara planned to go travelling and went to stay with family friends
+George Maitland and his wife for a week before she departed. George's
+wife died during her stay and she decided to halt her plans to travel in
+favour of helping George by becoming Angie and Artie's nanny, (TV: The
+
+Bells of Saint John ) inspired by the phrase she read in the second-
+
+hand book. (PROSE: Normality ) She told George that she would help
+for as long as she was needed and intended on going travelling once that
+
+was no longer the case. (TV: The Bells of Saint John )
+Meeting the Professor
+Clara had a poor knowledge of the internet. While attempting to log on to
+the Wi-Fi in the Maitland home, she used a mnemonic device, "Run you
+clever boy and remember", to help her recall the Wi-Fi password,
+rycbar123. She phoned a number for technical support, given to her by a
+woman in a shop, that reached the Eleventh Professor in the year 1207.
+Perplexed, she believed that he was on a helpline, and so she requested
+that he go to her to help her figure out how to use the Internet.
+
+He attempted to assist her, but Clara clicked on the Wi-Fi connection
+being used by the Great Intelligence to harvest human minds. A
+Spoonhead, adopting the guise of a character from Summer Falls, a novel
+she read, uploaded her to the data cloud. The process was incomplete
+when the Professor found her, allowing him to restore her. Clara found that
+her technical knowledge was greatly enhanced as a result of this.
+Clara on a motorbike with the Eleventh Professor. (TV: The Bells of
+
+Saint John )
+She used this new skill to hack the Great Intelligence's operatives,
+choosing "Oswin" as a username. She discovered their location in the
+Shard, before she was downloaded again by a Spoonhead, this time
+successfully. The Professor had the entire cloud downloaded back where
+possible, restoring Clara once more. He invited her to come with him and
+she told him to return the next day and ask again. (TV: The Bells of Saint
+
+John )
+Travels with the Eleventh Professor
+Early trips
+When the Professor returned for her, Clara was waiting eagerly. She rushed
+to meet the Capsule outside the moment the Professor knocked on her door.
+When the Professor asked her where she wanted to go, she was stuck at
+first. She quickly recovered, replying "somewhere awesome". He took her
+to the Festival of Offerings near Akhaten.
+
+Clara tells the Old God about her mother's leaf that's full of
+history and full of "a future that never got lived". (TV: The Rings
+
+of Akhaten )
+There, they explored the markets and watched the festival. When Merry
+Gejelh, whom Clara had comforted and encouraged to sing the Long
+Song at the Festival, was taken by the Mummy, Clara and the Professor
+saved her. In doing so, Clara had to give up her mother's ring, which had
+extreme sentimental value to her. To destroy Akhaten, she was forced to
+sacrifice something even more precious: the leaf that brought her parents
+together, "the most important leaf in human history". After saving everyone
+on the planet, they thanked her by returning her ring. After the trip, the
+Professor dropped her back off at her house in London, which she remarked
+
+looked different. (TV: The Rings of Akhaten )
+The Professor later took her on another trip, but instead of landing in Las
+Vegas as planned, they landed on the Firebird, a Soviet submarine at the
+North Pole in 1983. While the Professor brought the sinking submarine to
+safety, the Capsule activated its Hostile Action Displacement System and
+it dematerialised, leaving the Professor and Clara on the submarine.
+
+Skaldak holding Clara's head. (TV: Cold War )
+They quickly found that the Ice Warrior Grand Marshall, Skaldak, had
+been brought on board. The Professor attempted to convince the
+submarine's crew to be peaceful to him, but Lieutenant Stepashin stunned
+
+Skaldak with a cattle prod. The Professor ordered the crew to imprison
+Skaldak; Clara was sent to try and talk some sense into him, under the
+Professor's guidance, but discovered Skaldak had managed to escape his
+capture and threatened to launch the submarine's nuclear missiles. The
+Professor and Clara managed to make him hesitate his decision, and
+Skaldak and the submarine were rescued by an Ice Warrior ship. Skaldak
+left and remotely disarmed the submarine. The Professor then confessed to
+setting the HADS, and found that it had sent the Capsule to the South
+Pole; he had to ask the submarine captain for a lift, much to Clara's
+
+amusement. (TV: Cold War )
+At some point, Clara went to Baghdad in 1930 with the Professor, where she
+met and befriended Amy Johnson. After an adventure, Clara bade a sad
+farewell to Amy, knowing that she wouldn't see Amy again until Amy's
+death. She soon found a loophole in that her body was never found and,
+thus, as Amy was drowning a few years later, the Capsule materialised
+around her. The Professor and Clara took Amy to Cornucopia. (COMIC: A
+
+Wing and a Prayer )
+
+Clara and the Professor in Caliburn House. (TV: Hide )
+Later, the Professor took Clara to Caliburn House, the home of Major Alec
+Palmer, which was thought to have been haunted by the "Witch of the
+Well" for many years. Unknown to Clara, he took her there to speak to the
+psychic Emma Grayling and find out what Clara was. The Professor took lots
+of photographs of the ghost throughout Earth's timeline. The Professor used
+his photographs to explain that the "ghost" was, in fact, a time traveller
+from the future called Hila Tacorien, who was trapped in a pocket universe
+and being chased by the Crooked Man. The Professor used a crystal from
+Metebelis III to make Emma open up the portal to the pocket universe.
+Whilst there he saved Hila but got trapped himself; Clara argued with the
+
+Capsule voice interface when the Capsule would not let her in, Clara
+wanting to use the Capsule to save the Professor while the Capsule was
+concerned for its own safety.
+Later, after revealing that Hila was a distant relative of Alec and Emma,
+the Professor realised that the "Crooked Man" in the pocket universe was
+trying to get to another creature in the house, so he and Clara went back
+
+to pick it up. (TV: Hide )
+While the Professor was out, the Capsule demonstrated her antagonism
+toward Clara by deleting her bedroom and creating a holographic leopard
+while she was in the bathroom. It also created multiple versions of Clara
+
+simply to annoy her. (HOMEVID: Clara and the Capsule ) After this, he
+and Clara made an arrangement: he would pick her up every Wednesday
+and they would have adventures, but unlike his previous assistants, she
+wouldn't travel aboard the Capsule on a permanent basis as she had
+
+responsibilities on Earth of being a nanny. (TV: Nightmare in Silver )
+Timelines in the Capsule
+The Professor wanting Clara to get along with the Capsule. (TV:
+
+Journey to the Centre of the Capsule )
+While trying to teach Clara how to operate the Capsule, the time machine
+was caught in a magnetic hobble-field from a space salvage ship,
+operated by the Van Baalen Bros. A future version of the Professor arrived
+through a time rift, throwing his present self a magno-grab remote with
+"BIG FRIENDLY BUTTON" branded into it to stop the ship's magno-grab.
+After the Professor pressed the button, the Capsule disappeared, escaping
+the Van Baalens and preventing its engine failure. The Professor said aloud
+to Clara that two days had been compressed into the space of one. The
+
+Professor asked Clara if she felt safe travelling with him, and after a long
+conversation, she admitted that she did.
+In an alternate timeline, however, the Capsule was successfully captured
+by the Van Baalen Bros., causing the Capsule to leak the past and future.
+In the confusion, the Professor made it out of the Capsule, while Clara ended
+up lost inside, her hand burnt by the scorching metal of a magno-grab
+remote that had mysteriously appeared in the Capsule and rolled towards
+her shortly before she was separated from the Professor. Inside, she
+travelled through the Capsule' rooms, running away from a time zombie
+threatening to harm her. She eventually arrived in the Capsule library and
+hid there. She read a book called The History of the Time War, and found
+out the Professor's true name.
+"I think I'm more scared of you right now than anything else on
+
+that Capsule." (TV: Journey to the Centre of the Capsule )
+She kept travelling inside the Capsule, eventually arriving in an echo of
+the control room. She was pulled through to another echo room and
+reunited with the Professor, meeting Bram and Tricky Van Baalen. The
+Professor switched off the countdown to the Capsule's non-existent self-
+destruct sequence but realised that the magno-grab had caused the
+engine to start malfunctioning. On the way to the "centre of the Capsule",
+the four kept running from the time zombies and reached the Cloister
+Room, where they found out what the time zombies really were: them.
+The Professor managed to trick the time zombies and make them fall to their
+deaths inside the Eye of Harmony. The Professor and Clara ran to the heart
+of the Capsule. There, the Professor told Clara about her uniqueness, and
+about her multiple lives and deaths.
+The Professor found that the burn marks on Clara's hand had formed words:
+"BIG FRIENDLY BUTTON". The Professor then realised they needed to go
+back to the point of the disaster and activate the magno-grab remote,
+
+which had caused the burn marks on Clara's hand before, to stop the field
+and prevent the disaster. The Professor passed through a time rift to give the
+device to his past self, who successfully activated it, undoing the damage
+to the engine and making Clara forget about the Professor's name. The
+Professor did not want Clara to go searching for his name, because an
+important secret was connected to it. (TV: Journey to the Centre of the
+
+Capsule ) This adventure, although negated, was later recalled by Clara
+
+when the Capsule leaked time energy. (TV: The Name of the Professor )
+Continued adventures
+The Professor and Clara investigating Sweetville. (TV: The Crimson
+
+Horror )
+The Professor and Clara travelled to 1893 Yorkshire and reached a new little
+town, Sweetville, run by Winifred Gillyflower and her mysterious partner.
+While investigating the town, the two were taken by Gillyflower's guards
+into a creepy dungeon, where they were lowered down into a strange red
+liquid — known locally as "the Crimson Horror". Clara was successfully
+preserved by the matter and was placed with another survivor into a glass
+dome in one of the Sweetville houses, awaiting the next part of Mrs
+Gillyflower's insane plan. After Jenny Flint rescued the Professor from being
+held by Ada Gillyflower in an almost catatonic condition, they eventually
+found Clara. The Professor broke the glass, took Clara out and pulled her out
+of her "puppet" condition. Clara, the Professor and Jenny set off to finally
+defeat Mrs Gillyflower in a tower in the town; Gillyflower, along with her
+mysterious partner — the repulsive red leech, Mr Sweet — planned to fire
+a rocket that would spread the "Crimson Horror" all around the world,
+wiping humanity out except for those preserved by being lowered into the
+liquid. Clara broke a chair on Mrs Gillyflower's control console preventing
+her from triggering the rocket. After the Crimson Horror was safely
+
+removed from the rocket, Mrs Gillyflower threatened to kill the Professor and
+Clara anyway. She was shot by Strax and fell to the ground, suffering fatal
+injuries. Mrs Gillyflower died and Mr Sweet was also killed by Mrs
+Gillyflower's daughter, Ada.
+The Professor brought Clara back to the 21st century to the Maitland family
+house. Angie and Artie, the children she looked after, found photos from
+her adventures with the Professor on her laptop and found out that she was a
+time traveller. When going through the photos, Clara saw one of her past
+lives, Clara Osmond, in Victorian London. Realising that both her physical
+appearance and where the picture took place in was different, Clara
+began to suspect something wasn't right. Before she could process the
+thought entirely, the kids begged her to take them to an adventure, or else
+they would tell their father that their nanny was a time traveller. Clara,
+
+lacking any other choice, agreed. (TV: The Crimson Horror )
+
+Clara destroys a Automaton. (TV: Nightmare in Silver )
+The Professor took Clara, Artie and Angie to the abandoned theme park,
+Hedgewick's World of Wonders, where Angie and Artie were taken by
+weapons-grade Automatons, who had been reawakened from their tombs
+after being presumed long-extinct. The Professor put Clara in charge of the
+punishment platoon to fight the Automatons and began a game of chess to
+end the stalemate over his mind with the Cyber-Planner, Mr Clever.
+The Professor released the children in exchange for one of his chess pieces
+and pulled in the "local resources" to stop the Automatons. The missing
+Emperor, Ludens Nimrod Kendrick Cord Longstaff XLI, revealed himself
+as having been their short-statured friend Porridge and activated the
+planet-destroying bomb. This summoned his spaceship, transmatting the
+humans on Hedgewick's World to safety while the Automatons were left
+behind on Hedgewick's World. Porridge proposed to Clara, but she
+
+declined. The Professor returned Clara, Angie and Artie home. (TV:
+
+Nightmare in Silver )
+Clara visited Tickle Town with the Professor and was trapped in a roller
+coaster. She eventually escaped in the Capsule. (COMIC: Welcome to
+
+Tickle Town )
+
+Together, they met the King of Bones, (PROSE: Normality ) and visited
+the avocado seas of Venofax, where they visited an archaeological dig.
+While the Professor enjoyed himself, Clara quickly got bored and pressed
+some buttons on the archaeologists' equipment, accidentally turning off
+the barrier keeping the site from being flooded by the avocado seas.
+Nobody got hurt, but the entire expedition was ruined and everyone got
+wet.
+After leaving Venofax, Clara changed into dry clothes in the Capsule.
+When she came out, the Professor had landed in Dallas in 1963. Clara and
+the Professor discovered a parasite called the Shroud which was feeding off
+of the grief of the assassination of John F. Kennedy. After allying with
+some clowns from the planet Semtis, the Professor took the Shroud to
+
+Venofax and trapped it there. (PROSE: Shroud of Sorrow )
+Clara inside the Professor's time stream. (TV: The Name of the
+
+Professor )
+Sometime later, whilst at home with Angie and Artie, Clara received a
+letter from Vastra laced with a soporific that took her into a "conference
+call". There, she learnt that the murderer Clarence DeMarco had said
+"The Professor has a secret, you know. He has one he will take to the grave.
+And it is discovered," and showed Vastra the co-ordinates to where the
+Professor's tomb was. The call was interrupted by the Whisper Men
+attempting to murder Jenny. River woke up Vastra and Strax, and the
+
+Great Intelligence appeared, using the face of Walter Simeon, to tell Clara
+that to save his friends, the Professor had to come to Trenzalore - the place
+of his grave. When she woke up from the conference, River stayed
+connected. Using the telepathic circuits to get the co-ordinates, the Professor
+and Clara went to Trenzalore, crossing the Professor's timeline. The Great
+Intelligence was waiting there and wished to enter the tomb of the Professor,
+a future, decaying version of the Capsule.
+Entering the decaying Capsule through a hidden passageway, Clara
+began to remember the events of a deleted timeline, in which the Professor
+told her about her multiple lives, causing her to panic slightly. They
+eventually made their way to the Professor's tomb, where the Great
+Intelligence demanded the Professor tell him his true name. When he
+refused, River uttered it, and the door opened. Inside the tomb, the
+Intelligence entered the Professor's timeline, rewriting his history, changing
+all his victories into losses. The universe began decaying, all the people
+and civilisations saved by the Professor now destroyed. With no other
+choice, Clara did what she was meant to do; saying, "Run. Run you clever
+boy, and remember me", she walked into the timeline as well, scattering
+herself across time and space. This action projected her across time,
+creating many other versions of her that saved the Professor time and time
+
+again, (TV: The Name of the Professor ) ultimately weakening the Great
+Intelligence so much that it was forced to jump to the Brigadier's time
+stream instead where Clara couldn't follow it. (PROSE: The Forgotten Son
+
+) Meanwhile, the Eleventh Professor decided to jump into the timeline as
+well in order to save her. Hearing the Professor's comforting voice, she
+approached him. As they were just about to leave, Clara noticed an
+embodiment of the Professor that she'd never met. This version was the only
+one to break the promise of the name "the Professor". However, the stress of
+the experience caused Clara to faint, so she didn't find out anything more
+about this embodiment. Clara and the Eleventh Professor then departed, with
+the mysterious Professor watching them leave. (TV: The Name of the Professor
+
+)
+After she escaped the Professor's timeline, Clara could only remember bits
+and pieces of her echoes' lives. Some memories were more vivid, others
+
+she only recalled as dreams. (PROSE: Into the Nowhere )
+
+Hanging out into space from the Capsule, Clara and the Professor found a
+Tonnchenform, similar to Earth tardigrades. The Professor told Clara that
+because the space between galaxies was so big, they were rarely seen,
+but each of the billions of macroscopic creatures out there were beautiful
+and unique, just like the trillions of microscopic ones on Earth. Soon after,
+they went on an adventure involving a dinner with alien robots, a small
+jewel-encrusted seashell stolen by Bozzi the Mysterio, and a chase
+
+across the snowscapes of Halas Four. (PROSE: Normality )
+After the two had ended the Frogman civil war, they were assaulted by
+Adam Mitchell who abducted Clara and placed her, along with all of the
+Professor's other assistants, in a suspended animation chamber. (COMIC:
+
+The Choice ) The assistants were soon freed by Frobisher to fight off
+the Tremas Dean's Auton army, with the Professor delighting in introducing
+Clara to Amy Pond and Rory Williams before Adam sacrificed himself to
+thwart the Dean's plan. Along with the other assistants, Clara attended
+Adam's funeral before she and the Professor resumed their travels. (COMIC:
+
+Endgame )
+As a result of an accident caused by his fiddling with the Capsule'
+telepathic circuits, the Professor was left with the majority of his vast memory
+wiped as he and Clara were preparing to go on holiday. Using the Twelve
+Hundred Year Diary, Clara helped him remember his life. The Professor
+lamented that it was easier not remembering the people he had lost over
+the years, but Clara reassured him that he was a man who never ran from
+danger and had helped save billions of lives. Cheered up, the Professor put
+the Capsule into flight as they proceeded to their holiday. (TV: The History
+
+of the Professor )
+One day, Clara awoke in a darkened and abandoned Capsule, discovering
+herself to be in a spatial loop. Finding a button with a note that read "Do
+Not Touch", Clara decided that it was reverse psychology and pressed it,
+plummeting into a white void where she was rescued by the Sky Jack and
+taken to Tipperary Station, a meeting point of several alien scavengers,
+where she reunited with the Professor, who had been there for three years
+from his perspective. As the two conversed, the Professor came to the
+realisation that they were still in the Capsule, within an old console room
+
+whose preparations had been comically exaggerated. Arriving at the
+console, the Professor explained that this was the machinations of "the
+Hypothetical Gentelman", a disembodied entity that resided within the
+Capsule' Matrix that the Professor presumed to be a digital copy of a Time
+Lord tyrant, only for the being to reveal that it was the Matrix. After the
+Matrix explained how it became sentient, Clara, knowing that the Professor
+was telepathically linked to the Matrix, took the initiative and stowed away
+on its craft, sabotaging it before the Matrix could cross the wormhole into
+the wider universe. The delay was enough for the Professor to reset the
+Capsule and trap the Matrix in a never ending wormhole. After the aliens
+had all been returned home, Clara and the Professor joined the crew of the
+
+Sky Jack at VJ Day in the Hawaii. (COMIC: Sky Jacks )
+The Professor later took Clara to Deadwood in 1882 where they crossed
+paths with Oscar Wilde and ran afoul of the Professor's old foe Es'Cartrss
+who had put Earth on trial. As Clara worked with Calamity Jane, they
+discovered that Wild Bill Hickok and many others were being resurrected.
+After thwarting this scheme, the two went off to Shoreditch. (COMIC:
+
+Dead Man's Hand )
+After a particularly stressful day of nannying, the Professor took Clara to Cui
+Palta to relax only for both to fall victim to the psychic pollen of the local
+flowers, hallucinating an elaborate maze before Clara deduced the truth.
+Despite the danger, Clara was left exhilarated by the experience.
+
+(PROSE: Clara and the Maze of Cui Palta )
+Becoming a teacher
+Clara struggles to tame the students on her first day of teaching
+
+at Coal Hill School. (TV: Deep Breath )
+
+Clara studied to become a teacher whilst living with the Maitlands
+
+(PROSE: Normality ) and met and befriended Christel Dean, another
+
+aspiring teacher. (COMIC: Clara Osmond and the School of Death ) Her
+travels with the Professor got in the way of her studies, but she managed to
+
+qualify (PROSE: Normality ) and remained in contact with Christel
+
+afterwards. (COMIC: Clara Osmond and the School of Death )
+Clara was offered a job at Coal Hill School as an English teacher and
+accepted it as George Maitland was dealing with Angie and Artie well
+enough on his own. As she was newly-qualified, she accepted that there
+could be some truth in Angie and Artie's teasing remarks about the Professor
+having been behind her getting the job, but she chose to believe that it
+was at least partly on her own merit. When she started at the school, she
+asked the Professor to leave her to live a normal life for a while. (PROSE:
+
+Normality )
+On Clara's first day, she lost control of the class and threatened to have
+them all expelled, but Courtney Woods called her bluff by telling her to go
+through with it. This made her realise that she should never start with her
+
+final sanction. (TV: Deep Breath ) Although Courtney challenged her
+more often than any of the other students, Clara found it hard to stay
+made at her because of her apparent lack of any real malice. (PROSE:
+
+Normality ) She befriended colleague Adrian Davies, (TV: The
+
+Caretaker ) whom she once had a confusing conversation with about
+
+South American authors (PROSE: Normality ) and whom she did not
+consider to be her type despite his resemblance to the Professor. (TV: The
+
+Caretaker )
+In one particular lesson, Clara decided to switch things up, declaring that
+"normal is overrated", and brought her English class outside to teach them
+about tardigrades in an attempt to give them a glimpse into the wonders of
+the universe. Once they got settled on the grass, she instructed them to
+look up at the sky for ten seconds, then to shut their eyes, count to five,
+
+open them again and tell her what they saw. (PROSE: Normality ) At
+some point, she took tae kwon do lessons with the Year Sevens after
+
+school. (TV: Robot of Sherwood )
+
+Last trips together
+
+After more than six weeks, (PROSE: Normality ) the Professor contacted
+Coal Hill with the address of where he had landed the Capsule and she
+rendezvoused with him. The Capsule was airlifted by the Bureau to the National
+Gallery where Clara met Kate Stewart and consoled the Professor when he
+was reminded of the Last Great Time War. She travelled with a Zygon
+impersonating Kate Stewart to the Black Archive unaware that the
+scientific leader of the Bureau was being impersonated. Using the code scraped
+into the wall of the Tower of London, Clara activated Captain Jack
+Harkness' vortex manipulator and escaped the menacing Zygons by
+travelling to 1562. There, she met the War Professor, Tenth Professor and
+Queen Elizabeth I and attended the wedding of the latter two.
+"What you've always done. Be a Professor." (TV: The Day of the
+
+Professor )
+She was inserted into the Academian stasis cube Academe Falls No More
+with the Professors to surreptitiously re-enter the Black Archive in the 21st
+century. When the War Professor left for his own time to activate the
+Moment, Clara told the two remaining Professors that she could see in his
+eyes that the ending of the Time War was still in the earlier embodiment's
+future. She travelled through the Time Lock with the Professors and begged
+them to reconsider when they decided to cause the genocide together.
+They took this advice to heart. She was therefore present when the
+Professor changed history as he remembered it, and saved Academe instead
+of destroying it. Back on Earth, she briefly met the mysterious Curator,
+unaware that anything was extraordinary about him. She bade farewell to
+the past Professors, and kissed her Professor on the cheek; when the Professor
+asked how she knew he needed time alone with the painting, she told
+him, "I always know." Clara visited the Black Archive twice, but only had a
+memory of visiting once. As a result of the visit that she did not remember,
+
+she already had security access during the visit she did remember. (TV:
+
+The Day of the Professor )
+On her travels with the Professor, Clara was attacked by a mind parasite that
+was dubbed Waites. Waites caused Clara to live a horrible life where she
+lost her job and all her money but she retained enough awareness to seek
+out the Professor, who called himself "John Smith" within the shared dream,
+only for him to turn her away. Eventually Clara managed to shatter the
+illusion, seconds after the Professor, whereupon she physically attacked the
+parasite for the hell it had subjected her to before she and the Professor
+ripped its avatars off its other victims, killing it. As the two walked away,
+the Professor theorised that Clara's self awareness was the result of her
+having lived multiple lives. Clara smiled that the lack of Professor was
+probably what had tipped her off that something was amiss. (COMIC:
+
+John Smith and the Common Men )
+Clara visited the Obsidian Mainframe and attended the auction for various
+creatures. She was with the Professor when the Capsule was sold, and the
+Professor gained a lot of money. They were then forced to travel "the normal
+way" to the Cornucopia's airport, where Amy Johnson lived. (COMIC: Pay
+ 
+the Piper , The Blood of Azrael )
+Trenzalore
+Clara introduces her "boyfriend" to her family. (TV: The Time of
+
+the Professor )
+Needing a fake boyfriend as she cooked Christmas dinner for her family,
+Clara called the Professor twice while he was orbiting a planet surrounded by
+the universe's most dangerous enemies. She convinced him to come but
+was shocked to find him naked, which he fixed for her by putting a
+holographic filter on her. Clara introduced him to her family, who saw him
+
+naked because he hadn't put the filter on them. Learning from Handles
+that the planet was apparently Academe, Clara and the Professor travelled
+there. When the Papal Mainframe arrived, the Professor made Clara swallow
+a holographic projector to generate holographic clothes around her. Once
+on board, they met Tasha Lem who agreed to teleport the two to the
+planet's surface. There, Clara and the Professor were surrounded by
+Weeping Angels.
+The Professor pulled a secret key out of the wig he was wearing and
+summoned the Capsule, saving them both. Dressed in proper clothes
+again, he then flew the Capsule to the nearby town of Christmas, where
+they learnt that the town was surrounded in a truth field. Searching for the
+source of the transmission, the two found a crack in time, and the Professor
+realised that it was the Time Scholars trying to return to the universe. The
+Professor then explained that if he said his real name the Time Scholars would
+return but all hell would then break loose. After learning from Tasha Lem
+that the planet was Trenzalore, the Professor had Clara return to the
+Capsule. In the Capsule, Clara inserted a device the Professor gave her and
+was returned home, but grabbed onto the Capsule as it dematerialised
+again.
+The Professor and Clara share a conversation about renewals.
+
+(TV: The Time of the Professor )
+Clara returned to Trenzalore three hundred years after she left and found
+the Professor middle-aged. The Professor had been defending Trenzalore from
+the various threats besieging the planet and revealed to Clara that he had
+used up all of his renewals and this would be the end of him. Clara
+begged him to let someone else take up the job of protecting the planet,
+but the Professor refused. Clara watched the planet's brief sunrise with him,
+during which Handles ceased functioning and the two were invited by
+Tasha to return to the Papal Mainframe.
+
+There, Clara and the Professor were led into a trap, as the Cyphers had
+already taken over the Mainframe and converted everyone, including
+Tasha, into Cypher puppets. When the Professor threatened to release the
+Time Scholars if the Cyphers tried to kill him, Tasha took Clara hostage, and
+the Professor claimed not to care if she died. Bravely, Clara declared she
+would die anyway. Using Clara as an example of bravery, the Professor
+helped Tasha regain control of herself and she teleported them back to the
+planet after disposing of the Cyphers.
+Clara pleads for the Time Scholars to save the Professor. (TV: The
+
+Time of the Professor )
+The Professor and Clara returned to the Capsule where they found Clara's
+turkey cooked, and after promising never to send her away again, he
+tricked her into returning home once more. As a grief-stricken Clara
+celebrated Christmas dinner with her family, she had her grandmother
+repeat the story of how she fell for her grandfather and was relieved to
+hear the Capsule returning for her again, grabbing a Christmas cracker to
+take to the Professor. To her surprise, Clara discovered Tasha piloting the
+Capsule, and Tasha returned her to Trenzalore sometime further into the
+future after she left, telling her to go find the Professor.
+Upon reuniting with the Professor, Clara found him very old and weak. While
+they sat together, Clara opened the cracker and read the poem inside.
+When the Cyphers demanded his surrender, he agreed but asked Clara to
+remain behind for her own safety. Desperate to change the future, Clara
+pleaded to the Time Scholars for help through the crack. To her surprise, the
+crack snapped shut disappeared.
+
+Clara begs the Eleventh Professor not to change in his last
+
+seconds. (TV: The Time of the Professor )
+Clara watched tearfully as the Professor stood on top of Christmas' Clock
+Tower and surrendered to the Cyphers, prepared to die at last. As the
+Cyphers hesitated and the Professor goaded them on, the Time Scholars granted
+the Professor a new regenerative cycle. To Clara's relief, the Professor began to
+renew, using the explosive force of his renewal energy to
+destroy the Cyphers. When the dust cleared, there was no sign of the
+Professor, so Clara checked the Capsule where she found him restored to his
+youthful self. However, the Professor told her that he would still renew.
+Clara finds herself face to face with a new Professor. (TV: The Time
+
+of the Professor )
+She implored him not to change but despite her pleas, the Professor
+suddenly renewed into a new, older embodiment who left Clara
+confused by staring at her face to face, and then making comments about
+his new kidneys. The Capsule suddenly began crashing, and to Clara's
+horror, the new Professor asked her if she knew how to pilot the Capsule,
+having apparently forgotten how to do so himself. (TV: The Time of the
+
+Professor )
+The new Professor
+
+A frizzy haired and confused Clara following the Professor's
+
+renewal. (TV: Deep Breath )
+After crashing in prehistoric times, the new Professor and Clara were chased
+by a Tyrannosaurus rex. They managed to escape into the Capsule, which
+the dinosaur then swallowed. The Capsule then relocated to Victorian
+London, bringing the dinosaur with them, which spat out the time machine
+onto the banks of the Thames after choking on it. The Professor, suffering
+from severe post-regenerative confusion, stepped out and met Madame
+Vastra, Jenny, and Strax, joined by an equally befuddled Clara, before
+collapsing. Back at Paternoster Row, the Professor was put to bed to
+recover. Vastra confronted Clara over her prejudiced attitude to the
+Professor's new face, and Clara admitted that it was a big change for her.
+Upstairs, the Professor escaped his room and attempted to communicate
+with the dinosaur in the Thames, when it suddenly burst into flames. Clara
+and the Gang left separately and ended up right next to him. The Professor,
+still rather confused, disappeared into the Thames.
+
+Clara struggles to hold her breath. (TV: Deep Breath )
+The next morning, Clara found a newspaper advertisement that called her
+the "Impossible Girl" and invited her to "dinner on the other side"... of the
+page, which turned out to be an advert for Mancini's Family Restaurant.
+Believing it was a message planted by the Professor, Clara travelled to the
+restaurant and indeed found the Professor there, though he denied leaving
+the message. Clara and the Professor were taken down to the restaurant
+
+"larder" so that the droids could harvest their organs. After being
+separated from the Professor, the Half-Face Man interrogated her with
+threats of death, but remembering what happened when she had
+unsuccessfully threatened her rebellious students, dared him to, calling
+him on his bluff and saying that if the new Professor was really the Professor,
+he'd save her. The Professor suddenly revealed himself. She and the Professor
+called the Paternoster Gang into action, and they began fighting off the
+droids. The Half-Face Man escaped, but the Professor followed. Clara and
+the Gang seemed to be overpowered by the droids, but before they could
+be killed they all suddenly deactivated.
+Clara finally accepts the new Professor as the same man. (TV:
+
+Deep Breath )
+Clara and the Gang returned to Paternoster Row, finding that the Professor
+and the Capsule had vanished. Clara prepared to ask for a vacancy,
+believing the Professor wouldn't come back. However, he did, and Clara
+happily ran to the Capsule. Inside, she was surprised to find the Professor,
+like his predecessors, had renovated the control room. He affirmed to
+Clara he was not her boyfriend. Still having great trouble dealing with the
+sudden changes to the Professor's renewed self, Clara showed
+trepidation to continue travelling with him when the Capsule landed on
+Earth. Clara's phone started ringing. Stepping outside, Clara answered
+the phone and was shocked to hear the voice of the Eleventh Professor. He
+told her he was calling from Trenzalore before he had finished
+renewing. He told her the new Professor would be just as scared after the
+change as she would be and urged her to help him, with the two of them
+finally exchanging a belated goodbye. This call finally convinced Clara to
+accept the new Professor, and she gave him a big hug, despite him
+protesting he was no longer a "hugging person". The two then realised
+that instead of Clara's home, they had landed in Glasgow, and they set off
+
+to get coffee. (TV: Deep Breath )
+
+Travels with the Twelfth Professor
+Clara shoots the Professor the angriest look she's ever given him
+after he fixed a Cypher, moments before slapping him. (TV: Into
+
+the Cypher )
+When the Professor failed to return with the coffee, Clara returned to her
+teaching duties. Mr Armitage introduced her to a new maths teacher,
+Danny Pink, and following an awkward conversation, asked each other
+out. Clara returned to her office and found the Professor with the coffee. The
+Professor told her he needed her help and brought her aboard the Capsule.
+He asked her if he was "a good man", but she told him she didn't know.
+
+Aboard a ship called the Aristotle (TV: Into the Cypher ) in the Ryzak
+
+solar system, (PROSE: The Secret Lives of Monsters ) Clara and the
+Professor joined a team to be shrunk and deposited into a malfunctioning
+Cypher called "Rusty". The shrunken Professor and Clara entered Rusty
+through its eyestalk in order to determine how it became good and
+attempt to repair the Cypher so that it could help the efforts of the
+resistance. When the Professor's repairing of Rusty caused it to kill several of
+the Aristotle's soldiers, Clara entered the Cypher's memory banks and
+allowed the Professor to link minds with it, causing it to turn against its kind
+and order a nearby Cypher ship to retreat. After this Clara and the Professor
+returned to their normal size. The Professor then returned Clara to Coal Hill
+School, again asking if he was a good man. Again she admitted she didn't
+know but pointed out that he tried to be, which was what really counted.
+Back at Coal Hill, she met up with Danny again, agreeing to go on a date
+with him and insisting she had nothing against soldiers. (TV: Into the
+
+Cypher )
+Clara later gave the Professor some chips who proceeded to ramble about
+
+how great they tasted. (COMIC: Untitled ) In return, the Professor
+
+attempted to get a reservation at a restaurant on Calbaron III in 5083, only
+to learn that there was a three year wait. They booked and went three
+years to the future, only to learn the restaurant was closed to celebrate
+the third anniversary of the overthrowing of the tyrannical emperor Vimlox.
+After briefly returning to 5083, and seeing their future selves enjoying a
+meal, the two made for 5080 to make a reservation. Before they left, the
+Professor found that the tyrannical emperor had scratched his Capsule and
+promptly overthrew him, resulting in the anniversary. (COMIC: Planet of
+
+the Diners ) The Professor repaired the scratch on the Capsule, but found
+that the damage had caused time within the Capsule to temporarily run
+backwards, much to Clara's annoyance when she tried to converse with
+
+him. (COMIC: The Inversion of Time ) The Professor later used his
+uncertainty about what sort of person he was to have Clara do various
+chores around the Capsule, though she stopped indulging him after he
+
+forced her to take out the trash. (COMIC: The Bin Dilemma )
+Clara blushing with excitement at the sight of one of her
+
+childhood heroes, Robin Hood. (TV: Robot of Sherwood )
+The Professor offered Clara the choice of their next visit. She requested to
+meet Robin Hood, having grown up reading the stories about him, despite
+the Professor's insistence that he was a fictional character. They arrived in
+Sherwood Forest, to indeed find Robin Hood, but the Professor refused to
+believe he was real. Following an archery contest, the Professor, Clara and
+Robin were captured by the Sheriff of Nottingham and his robot knights,
+and taken to his castle, which was actually a spaceship. The Professor and
+Robin argued in the cell, leading the guard to believe Clara was the most
+responsible and mature one of the three - and therefore their leader - so
+he took her out to the Sheriff. Clara tricked the Sheriff into revealing to her
+his plans to take over the kingdom. The Sheriff also revealed that he
+planned to make Clara his consort, and attempted to kiss her, which she
+
+avoided. She then warned the Sheriff that he'd "regret that" if he tried
+again. She managed to escape with Robin, who brought her to his
+campsite and demanded he tell her what the Professor knew about the Robin
+Hood legends, though she ended up telling them about the Professor's life as
+well, having been unable to stop once she started. They returned to the
+castle in the middle of a revolt led by the Professor, where Robin defeated
+the Sheriff in a battle. Clara, the Professor and Robin then teamed up to
+launch a golden arrow to allow the ship to fly into space. Clara and the
+Professor farewelled Robin and set off on more adventures. (TV: Robot of
+
+Sherwood )
+Clara giving herself a proper introduction and offering a
+
+handshake to Danny on a nighttime date. (TV: Listen )
+Clara went on a date with Danny, but some miscommunication caused her
+to storm off. Returning home, Clara met the Professor, who convinced her to
+help him learn if there was a creature that can perfectly hide; he believed
+this to be why people talk out loud when alone. Using the telepathic
+circuits, Clara accidentally landed the Capsule at the West Country
+Children's Home in the 1990s when a call from Danny distracted her.
+Clara and a young boy called Rupert Pink, who was a younger version of
+Danny, and they encountered a mysterious figure hidden by a bed sheet
+sitting on Rupert's bed. The Professor, Clara and Rupert turned away from
+the figure as it left Rupert's bedroom, and they were unable to find out if it
+was a creature or a child playing a prank. Clara asked the Professor to take
+her back to the moment she left Danny, so she could attempt patching
+things up. However, not only did she mess things up, but the Professor called
+her back to the Capsule, where she met Orson Pink, who came from 100
+years later in Clara's timeline.
+
+
+Clara comforting a young, frightened Professor. (TV: Listen )
+Orson was a time traveller who had been trapped at the end of time,
+where the Professor's theory seemed possible, as something wanted in.
+However, the Professor was knocked out when the door opened and the
+oxygen field collapsed. Clara piloted the Capsule via the telepathic
+circuits, accidentally landing in the Professor's own childhood. Hiding under
+his bed, Clara convinced the young First Professor it was a dream. Fear, she
+told him, can make one kind instead of cruel and cowardly, and a day
+would come when he was the most afraid. Inside the Capsule, Orson
+asked the Professor what was outside Orson's ship, but Clara entered and
+asked the Professor what if there was nothing behind the door, or under
+everyone's beds, and "What if the big bad Time Scholar doesn't want to admit
+he's just afraid of the dark?" Clara made the Professor promise to leave and
+never find out where they had landed. She returned to the 21st century
+where she decided to make her relationship with Danny a romantic one.
+She leaned in and kissed Danny, allowing both of them to overcome their
+
+separate fears of becoming a couple. (TV: Listen )
+Dating life and assistant life collide
+While Clara was preparing for a date with Danny, she refused to go
+sightseeing with the Professor. However, when the Professor received a call
+from an elderly Madame Karabraxos, who asked him to rescue the Teller
+and its imprisoned mate from the Bank of Karabraxos before the solar
+storm would destroy it, Clara joined the Professor on the mission. The Professor
+recruited Saibra and Psi and, disguising himself as "the Architect",
+orchestrated a bank heist for himself and his new team to commit. The
+Professor, Clara and Saibra used memory worms to erase their recent
+memories, while Psi deleted his recent memories manually. This allowed
+them to break into the Bank of Karabraxos without revealing their plan to
+
+the Teller, who was forced to work as the bank's telepathic guard by Ms
+Delphox, the Head of Bank Security. Following the instructions left by the
+Architect, the team discovered six devices which they believed were
+atomic shredders. Preferring a quick and painless death, Saibra was soon
+forced to use one of them, as later was Psi.
+Clara and the Professor browsing the main vault of the Bank of
+
+Karabraxos. (TV: Time Heist )
+Left alone, the Professor and Clara entered the bank's vault, where they
+found the payment which the Architect had promised to Psi and Saibra.
+The pair were soon captured by the Teller and Ms Delphox, who ordered
+their execution. However, they were rescued by Saibra and Psi, who had
+survived and disguised themselves as guards. They revealed that the
+"atomic shredders" were actually teleporters. Reunited, the team ventured
+into the bank's private vault, where they discovered the bank's director, a
+younger Madame Karabraxos. Realising the true identity of the Architect,
+the Professor wrote down his phone number and gave it to Karabraxos, who
+fled the bank. No longer subjected to Karabraxos, the Teller used its
+psychic powers to restore the Professor's lost memories, allowing him to
+learn the true objective of their mission. After freeing the Teller and its
+mate, the Professor and his team escaped the planet using the teleporters.
+Reunited with his Capsule, the Professor dropped the two creatures off on an
+isolated planet. After giving Psi and Saibra their payment and having a
+meal with them and Clara in the Capsule, the Professor returned his
+assistants to their respective times and places, allowing Clara to be
+
+back home on time for her date. (TV: Time Heist )
+At some point, the Capsule had been lost in 22nd century London and
+kept a boy called Simon safe when the city had been taken over by
+wolves. At a time when Simon, the Professor and Clara all needed help,
+Simon triggered the Capsule' telepathic circuits and the Capsule
+
+materialised around the Professor and Clara just as they were "about to be
+turned into toast by an Aaraanandal slime beast". They took Simon out of
+the danger zone to bring him to his parents in Bedfordshire, before leaving
+
+in the Capsule. (PROSE: When the Wolves Came )
+Although the Professor always returned her home soon after they left,
+leading a double life didn't prove to be easy for Clara. During one of their
+adventures, the Professor and Clara were held prisoner on a desert planet.
+As a result, Clara acquired a tan, which surprised Danny. After meeting
+fish people with the Professor, Clara turned up on a date with Danny in a wet
+dress and with seaweed in her hair. One day Danny came round to
+Clara's flat to go running with her, not knowing that she was already
+exhausted after running for her life on another outing with the Professor. On
+another occasion, Danny saw Clara wearing a space helmet. By that time,
+the rumours of Clara's and Danny's romantic relationship were travelling
+among the students of Coal Hill School. Clara's two lives finally collided
+when one morning the Professor informed her that they were not going to
+have an adventure that day, explaining that he had a "thing" to do. To her
+horror, when Clara arrived at Coal Hill School, Mr Armitage introduced her,
+Danny and other teachers to the school's new caretaker, who was actually
+the Professor going undercover. He had discovered a Skovox Blitzer killer
+robot in the surrounding area and was planning to lure it into the school,
+where he was going to trap it using chronodyne generators and send it
+into the Time Stream. However, his plans were spoiled when Danny, whom
+the Professor didn't like and whom he claimed he didn't recognise,
+discovered and switched off some of the chronodyne generators.
+Clara turning dismayed as Danny is filled in about her space-time
+
+escapades with an alien. (TV: The Caretaker )
+The Professor was still able to temporarily send the Blitzer into the Time
+Vortex. Noticing that Clara was familiar with the Professor, Danny demanded
+
+explanations. Clara had to tell him the truth about her life with the Professor.
+The Professor's dislike for Danny increased when he learned that Danny was
+Clara's boyfriend. Declining his proposal to erase Danny's memories of
+these events, Clara took the shocked Danny home. Danny was
+uncomfortable with the fact that Clara "eloped" with the Professor when he
+wasn't seeing her. This prompted her to give him an invisibility watch and
+take him with her into the Capsule the next day so that he could observe
+her interactions with the Professor. However, the Professor sensed Danny's
+presence, and a heated confrontation arose between the two men. As
+Danny stormed out of the Capsule, Clara reminded him that it was
+parents' evening at Coal Hill School that day, and the pair had to return to
+their duties.
+During the parents' evening, the Skovox Blitzer suddenly emerged from
+the Time Stream earlier than expected, which the Professor detected. He
+summoned Clara and gave her his sonic probe, instructing her to
+use it to attract the Blitzer's attention and lure it towards the Capsule. The
+Professor used the device that he had built to make the Blitzer think of him
+as of its superior. This accidentally triggered the Blitzer's self-destruct
+protocol. However, Danny appeared at the last moment and distracted it,
+giving the Professor enough time to deactivate the Blitzer. The Professor had to
+acknowledge that Danny had saved the world, while Danny claimed that
+he didn't need the Professor to like him, but needed to prove himself a worthy
+boyfriend for Clara in the Professor's eyes. Clara shared an evening with
+Danny. He told her that when he was a soldier, he knew officers like the
+Professor, and made Clara promise to tell him if the Professor ever pushed her
+
+too hard. (TV: The Caretaker )
+Clara and the Professor trying to escape as a Hyperion reveals
+
+itself. (COMIC: Terrorformer )
+
+Clara volunteered to supervise a school ski trip with Danny, so the Professor
+brought her to the planet Isen VI, which they discovered being terraformed
+by Kano Dollar and his company Dollar Intergalactic. The terraforming
+woke up a Hyperion named Rann-Korr. Clara had to use a ski-pole to
+fence with Eric the drone, reprogrammed by Rann-Korr, and helped the
+Professor to revert an area of Isen VI around Rann-Korr to its original icy
+state, freezing Rann-Korr inside. This was Clara's first encounter with
+
+Hyperions. (COMIC: Terrorformer )
+Clara's body is possessed by Kali. (COMIC: The Swords of Kali
+
+)
+Clara and the Professor later answered a distress call from an old friend of
+his, Tiger Maratha, leading them to meet his daughter Priyanka Maratha
+instead as Tiger had been dead for some time. It turned out that a family
+cult that worshipped Kali were working to resurrect her by murdering
+people and using their souls to power Kali's rebirth; they had tricked Tiger
+into collecting three of the four swords, but threatened to kill him when he
+claimed that the fourth was nowhere to be found. Clara was captured and
+used as bait to ensure the Professor brought the fourth sword of Kali to them,
+in exchange for Clara's safety.
+However, they double-crossed the Professor and used Clara as the vessel of
+Kali's spirit, mutating her into Kali's form; Clara retained awareness of
+what was happening. When the Professor returned, he managed to help free
+Clara briefly from Kali's control, saving him from being sliced to death.
+However, the Professor had a backup plan; he had placed his sonic
+screwdriver in the fourth sword and tricked Kali into destroying her power
+source. The vengeful spirits forced Kali out of Clara, returning her to
+normal. Borrowing a shirt from Priyanka, Clara and the Professor attended
+the Festival of Light with Priyanka and her new girlfriend Rani Jhulka, a
+
+time-displaced Amazon from 18th century Africa. (COMIC: The Swords of
+
+Kali )
+Earth was later invaded by the Fractures, creatures of the Void who
+sought Paul Foster, a scientist from another universe who had crossed
+into N-Space to join a version of his family that had lost his counterpart.
+The Professor managed to banish the Fractures with Clara convincing him to
+
+allow Paul to remain. (COMIC: The Fractures ) Clara had been given
+one of the Professor's sonic probes during the course of the adventure
+but as he had forgotten to reclaim it, Clara kept it for herself. (COMIC:
+
+Clara Osmond and the School of Death )
+On a jungle planet, Clara found a museum that held a record of the Tenth,
+Eleventh and Twelfth Professors meeting. Seeking to prevent the dangerous
+paradoxes of a Multi-Professor Event, Clara steered the Capsule to Paris in
+1923 to enlist the aid of Gabby Gonzalez and Alice Obiefune only for a
+future Gabby to arrive and warn that they were all falling into the trap of an
+alternate Twelfth Professor who now ruled the Voord. Navigating around the
+traps, the group made their way to Marinus to confront their foe where
+Clara convinced the alternate Twelfth Professor to revert the Voord lest they
+be destroyed. Only asking that Clara not forget him, the alternate Professor
+complied. Having previously entered the Professor's timestream, Clara's
+
+memories of this were erased soon after. (COMIC: Four Professors )
+Shunning the Professor
+When the Professor told Courtney that she wasn't special, she became upset
+and inconsolable. Noticing this, Clara asked the Professor to tell Courtney
+that she was special, which prompted him to take both Clara and
+Courtney to the Moon in the year 2049 so that Courtney could become the
+first girl to step on the lunar surface. The Capsule landed on board a
+space shuttle that Captain Lundvik and her crew were piloting to the
+Moon, which recently had been gaining weight and creating chaos on
+Earth due to its increasing gravity. Investigating an abandoned moonbase,
+the Professor, Clara, Courtney and the astronauts were attacked by spider-
+like creatures, who soon killed Lundvik's crew.
+
+Clara is being left behind by the Professor on the Moon. (TV: Kill the
+
+Moon )
+After scanning the Moon's core, the Professor discovered that the Moon was
+actually an egg that was about to hatch and release a giant creature.
+Believing that it was a threat to humanity, Lundvik desired to kill it using
+the nuclear bombs which her crew brought to the Moon in their shuttle.
+Unwilling to kill a yet-to-be-born and potentially innocent organism, Clara
+asked for the Professor's advice - but to her horror, he proclaimed that it was
+not his place to decide the fate of Earth's Moon and departed in the
+Capsule, leaving Clara, Courtney and Lundvik to make a decision on
+behalf of humankind.
+Clara sent a video message to Earth, asking humanity to vote whether
+they should destroy the creature or not. Although the human race
+unanimously voted for killing it, Clara could not bear such a decision and
+cancelled the countdown. At the same moment, the Capsule arrived back,
+and the Professor took the three women to a beach on Earth. The creature
+harmlessly emerged from its egg, its eggshell dissolving without doing any
+damage to Earth, and laid another egg. He explained that the sight of
+such a creature being born would fascinate humanity and inspire it to
+pioneer into space and spread across the universe.
+Angry and hurt, a tearful Clara, feeling betrayed by the Professor,
+
+tells him to go away. (TV: Kill the Moon )
+
+After the Professor took Courtney back to Coal Hill School, Clara confronted
+the Professor, demanding to know what he really knew and threatening to hit
+him "so hard he would renew". The Professor replied that he knew that
+the creature wouldn't harm Earth and that Clara "would always make the
+right choice". Angered by the fact that the Professor, whom she considered
+her friend, had put her in a terrible situation in which she nearly caused
+the death of an innocent creature, and tired of his patronising attitude,
+Clara told him to leave and never return for her, exiting the Capsule in
+tears. When Danny came to see Clara in her class, she recounted the
+story to him. She claimed that she had finished with the Professor, but Danny
+pointed out that she was still angry and stated that "you can never finish
+with anyone while they can still make you angry". He told Clara to calm
+down first, and only then tell the Professor that their relationship was over.
+
+(TV: Kill the Moon )
+Forgiving the Professor
+Clara remained angry at the Professor for several weeks, but eventually, she
+realised that although she couldn't carry on travelling with him, she didn't
+want to part with him on bad terms, and agreed to make one final trip with
+him as "a goodbye to the good times". The Professor took Clara to the
+space-bound recreation of the Orient Express, where they soon learned
+that one of the passengers, Mrs Pitt, had recently died. Theorising that
+she was killed by the mythical Foretold, the Professor set off to investigate,
+while Clara followed Maisie, Mrs Pitt's granddaughter, to the luggage car,
+where the two got themselves trapped.
+Clara and Maisie confront the Professor on the Orient Express. (TV:
+
+Mummy on the Orient Express )
+After several more people were killed by the Foretold, the Professor
+discovered that the Orient Express was actually a trap orchestrated by
+
+Gus, the computer who controlled the train, to study the Foretold.
+Learning that Maisie would be the next victim and planning to make use of
+her death in order to study the Foretold, the Professor phoned Clara and told
+her to bring Maisie to the lab, making Clara lie to her that the Professor
+would be able to save her. Gus unlocked the luggage car door, allowing
+Clara and Maisie to the lab, where the Professor admitted knowing all along,
+or at least suspecting, that this wouldn't be just a relaxing voyage. Clara
+realised that the Professor had once again placed her in a dangerous
+situation. The Professor was able to make the Foretold attack him instead of
+Maisie and, identifying it as an "ancient soldier being driven by
+malfunctioning tech", surrendered to it, allowing it to die. Having no more
+need for the scientists, Gus proceeded to remove all the air from the train,
+making Clara and the rest of the passengers pass out. The Professor
+retained oxygen long enough to use the Foretold's teleport to rescue
+everyone on board.
+Clara decides to continue travelling with the Professor. (TV: Mummy
+
+on the Orient Express )
+Upon waking up, Clara found herself with the Professor on a beach on a
+nearby planet. He explained that he was unable to save the other
+passengers from the Foretold and that there was a big chance that he
+wouldn't be able to save Maisie as well, but he still had to risk her life to
+stop the Foretold, because "sometimes the only choices you have are bad
+ones, but you still have to choose". Back in the Capsule, Clara asked the
+Professor if he loved the fact that his life was full of dangerous situations and
+hard decisions, and whether it was like an addiction for him, to which he
+replied that you couldn't tell if something was an addiction until you tried to
+give it up. Upon receiving a call from Danny, Clara indicated to him that
+she had finally parted ways with the Professor. However, unable to really give
+up her life in the Capsule, she lied to the Professor that Danny wouldn't mind
+if she continued travelling with the Professor as long as he brought her home
+
+safe and on time, and much to his joy and delight, asked him to take her
+
+on a new adventure. (TV: Mummy on the Orient Express )
+Secret adventures
+The Professor landed on the Pollyanna, the first of the Ninth Era sunships,
+which had been on an expedition to circumnavigate the Sun. Because the
+temperature was kept cold in spite of the Professor telling Clara he was
+taking her "somewhere warm", Clara went back inside the Capsule to
+change in warmer clothing, while the Professor ran off without her. Clara met
+the boss of the expedition, the egotistical "handsome quadrillionaire" Rudy
+Zoom, and was shown the Pollyanna's flight deck. When the Umbra, a
+group of "psychic predators" who fed off self-loathing, began attacking the
+Pollyanna, Clara used the Capsule to translate a looped signal Sandy
+Tanaka had been trying to decode. The signal was a message recorded
+by an alien scientist whom had created the Umbra. He said that originally,
+the Umbra had been a psychic fabric fashioned into a cloak which drained
+guilt. However, the Umbra gained intelligence and devoured his people's
+"spirits".
+The scientist as a last ditch effort tried burning them in the Sun, but they
+survived, trapped inside the Sun's chromosphere. The Umbra began
+swarming the Pollyanna, anchoring the ship to the Sun to try and hijack it
+and use it as a way of reaching Earth. As the rest of the crew on the flight
+deck headed to auxiliary control, Clara destroyed the navigation system,
+stopping the Umbra from finding Earth. After the crew was surrounded,
+Clara realised that Rudy was too much of a narcissist to have any self-
+loathing in his mind for the Umbra to feed on, and sent him to speak to the
+Umbra. As a result, the inside of Rudy's mind was "like poison" to the
+Umbra and the Umbra on board were destroyed while trying to feed on his
+mind. Meanwhile, the Professor had used the graviton inverter on the
+Pollyanna to destroy the Umbra which had swarmed on the ship's hull by
+
+freezing them to death. (COMIC: The Eye of Torment )
+While attempting to return Clara home, the Professor accidentally took the
+Capsule to Bristol, and the pair discovered that the Capsule exterior had
+reduced in size. Staying behind in the Capsule to investigate the effect,
+
+the Professor sent Clara to look around and find the cause. Clara met Rigsy
+and his community service crew and learned that people had been
+disappearing in the area, with murals of them appearing on the walls of a
+pedestrian tunnel. On returning Clara discovered that the Capsule had
+shrunk further, preventing the Professor from getting out. However, the
+doorway was still large enough for him to pass Clara his sonic
+screwdriver, his psychic paper and a nanotechnological device that
+allowed him to communicate with Clara and see through her eyes. Putting
+the small Capsule in her handbag, Clara set off to find the source of the
+dimensional leeching.
+"I'm the Professor! Professor Oswald. But you can call me Clara." (TV:
+
+Flatline )
+Clara once again met Rigsy, and they investigated the disappearances.
+The Professor realised that they were dealing with beings from a two-
+dimensional universe, who were sucking people into flat surfaces. As the
+two-dimensional entities were advancing on Clara and Rigsy, Clara
+received a call from Danny and, telling him that she was busy helping a
+community worker find his missing aunt, quickly hung up. Clara and Rigsy
+escaped the danger and, when the Professor realised that the murals were
+actually the creatures taking forms of their victims, Clara and the rest of
+the community service crew at the tunnel hid in a nearby engine repair
+warehouse. While the group was confused and disorientated, Clara
+became the leader and attempted to bring them to safety. As the creatures
+had gradually picked off the community service workers, Clara, Fenton
+and Rigsy became the only survivors. The Professor claimed that he had
+discovered a way to send the creatures back to their dimension but didn't
+have enough power to do so. In the chaos, the Capsule was dropped
+down a shaft onto a railway. Fleeing from the creatures, Clara found the
+Capsule in siege mode on the tracks and devised a plan to restore its
+power. She asked Rigsy to paint a fake door with a flattened handle and
+
+placed the Capsule behind it. Attempting to de-flatten the fake handle so
+that they could open the "door", the creatures unknowingly pumped
+dimensional energy into the Capsule, restoring it to its proper size and full
+power. The Professor emerged from the Capsule and, taking his sonic
+screwdriver back from Clara, sent them back to their dimension. When the
+threat was over, the Professor took the survivors to the surface. (TV: Flatline
+
+)
+The Professor tried taking Clara to the frost fair in 1641, but instead, was
+drawn off course and landed in the Sahara Desert in 1941, where they
+were captured by Nazis. After the Professor spoke to their field marshal,
+Erwin Rommel, and learnt of Germany's Tuareg allies making friends with
+"men from the stars", Clara stayed behind at the base because of the
+Tuareg's hostility towards women. Eventually, though, after the Rutan spy
+Heinz Bruckner framed the Professor and Clara as spies, Clara was taken
+prisoner and joined Bruckner, ostensibly in a mission to find the Professor
+and Field Marshall Rommel. Instead, Bruckner drove to the site of the
+Legionary world engine weapon, the Warsong, using the chronal energy
+inside Clara to pinpoint the location of the Warsong so he could claim it for
+the Rutans. The Professor and Rommel broke through the defences of the
+Warsong, but Bruckner held Clara hostage. The Professor stopped Bruckner
+from conducting the millennia-old preset programming of the Warsong by
+using a Legionary osmic projector to send Bruckner's trigger mechanism
+through time, and Clara broke free. Rommel threw Bruckner into the
+Warsong, killing him, while the Professor destroyed the "orchestra" of the
+Warsong by using his sonic probe to blow it up. Afterwards, he
+
+brought Clara to the frost fair. (COMIC: The Instruments of War )
+Clara, Maebh and the Professor try to "look big" to intimidate a
+
+charging wolf pack. (TV: In the Forest of the Night )
+
+Clara and Danny chaperoned a school trip to a museum, and upon
+leaving, discovered a forest had grown all over the world. One of the
+students, Maebh Arden was missing. Clara, Danny and the students met
+up with the Professor at Trafalgar Square, and she and the Professor set off to
+find Maebh. Following a trail that Maebh left, they caught up to her but
+were trapped by a tiger. Danny saved them. Maebh claimed to have been
+behind the forest, and the solar flare headed for Earth that had come to
+her in the thoughts Maebh found after her sister Annabel went missing.
+Believing there was no hope for humanity, Clara convinced the Professor to
+leave her and Earth behind. The Professor began to leave but realised the
+trees were protecting Earth, rather than destroying it with the solar flare.
+With the Professor's help, Maebh sent out a message to humanity urging
+them to leave the trees alone. The Professor and Clara then watched as
+Earth was shielded from the solar flare by the trees. Back at her flat, the
+Professor stated to Clara that humanity would forget the incident. (TV: In the
+
+Forest of the Night )
+When the Professor took Clara to Las Vegas in 1963, he quickly won her a
+fortune only to be escorted away by enforcers of the casino's owner. Left
+to her own devices, Clara quickly won the affections of the Wolf Pack who
+promised to help her find the Professor before the Cybock Imperium invaded.
+Imprisoned with the artists at the Cosmos Casino, Clara managed to
+extort information from the conquerors, distracting them long enough for
+the Professor to arrive. The Professor eventually managed to convince the
+Cybock to play a game of Rassilon's roulette with the Time-Gun of
+Rassilon, resulting in the Cybock wiping themselves from history, the
+Professor revealing that the gun couldn't fire on Academian DNA. Afterwards,
+Clara attended a show by the Wolf Pack, being mortified to discover that
+
+they considered the Professor her "sugar daddy". (COMIC: Gangland )
+Next materialising in Derbyshire in 1845, though aiming for Margate, the
+Professor and Clara were brought to North Lees Hall where they freed the
+residents from the thrall of an Aranox, which burnt to death along with the
+castle. As the residents all left, Clara was delighted to learn that they'd
+given Charlotte Brontë the inspiration for Jane Eyre. (COMIC: Unearthly
+
+Things )
+
+Losing Danny
+Clara blackmails the Professor with his Capsule keys. (TV: Dark
+
+Water )
+During the "invasion of the trees" Danny learned about Clara's secret
+adventures with the Professor. After marking her student's schoolwork and
+writing some sticky notes, Clara was prepared to tell Danny the truth. (TV:
+
+In the Forest of the Night ) While he was out walking, she phoned him.
+She began to tell him about her recent travels with the Professor and that
+she loved him, however, the line fell silent during the call. A panicked
+woman took the call and informed her that Danny had been hit by a car.
+Clara rushed to the scene in time to see Danny's lifeless body being taken
+away by paramedics. Several days later, Clara attempted and failed to
+blackmail the Professor to save Danny's life. The Professor still agreed to use
+the telepathic circuits to find a way to save Danny. The Capsule took them
+to 3W. They were greeted by Melissa, who said that she was a greeting
+droid and passed them on to Dr Chang. Dr Chang established a
+communication with the Nethersphere, and the voice of Danny came
+through. The Professor left with Chang to investigate the centre while Clara
+spoke with Danny. Clara asked Danny to say something which only he
+could say so that she knew that it was definitely him. She vowed to find a
+way to be with him, even if it meant taking her own life. In fear that she
+would die for him, Danny repeatedly told Clara he loved her, prompting
+her to end the call. Turning around, she found that the dark water had
+drained from the tank containing Dr the Foundrysa, revealing him to be a 3W
+
+Automaton. (TV: Dark Water )
+To save herself, Clara used her knowledge of the Professor to try to convince
+the Automatons that she was him but ultimately failed. However, another
+Automaton stunned her, killed the others and took her to a graveyard. In
+the graveyard, Clara avoided the Automatons rising from their graves and
+
+her saviour revealed itself to be Danny. However, Danny couldn't stand
+the pain of being a Automaton and asked Clara to activate his inhibitor for
+him. Clara activated his inhibitor to allow Danny to clearly see the
+Automatons's plan and afterwards hugged Danny who retained control even
+with the inhibitor due to his love for her. As Clara hugged Danny, Melissa,
+who was in fact a female embodiment of the Professor's boyhood friend the
+Dean, arrived to reveal her plan was to convert all of humanity and have
+them march across the universe, conquering and converting, an
+unstoppable army, with the only question being whether that army spread
+on its own or the Professor took control of it himself. During the confrontation,
+Clara got ahold of Melissa's weapon, while the Professor handed control of the
+army to Danny. Danny then sacrificed himself to stop Melissa's plans.
+However, the devastated Clara decided to kill her out of revenge. The
+Professor decided to do it to spare Clara from being tainted, but they were
+both spared when a rogue Automaton appeared to disintegrate Melissa with
+his wrist blaster.
+A teary-eyed Clara gives the Professor a goodbye hug. (TV: Death
+
+in Heaven )
+Two weeks later, Clara awoke to Danny's voice and followed it to a portal.
+Clara was excited as the Professor had told her that Melissa's bracelet, which
+Danny had on him, would thus allow him to come back. However, Danny
+chose to send back the boy he killed, asking Clara to get him home as
+there was only enough power left for one trip for one person. Meeting with
+the Professor, Clara nearly told him about what happened with Danny when
+the Professor assumed he returned and she would be ending her adventures
+with him for a life with Danny. However, she stopped herself when he told
+her that he had found Academe. Clara said goodbye to the Professor and
+watched him depart once more as she didn't want to spoil his happiness.
+
+(TV: Death in Heaven )
+
+Second chance with the Professor
+When Clara was attacked by a dream crab who slowly fed on her brain,
+she had a dream where she became an old woman filled with regrets. She
+turned down many marriage proposals, taught in every school in Europe
+and learnt how to fly an aeroplane. She was then attacked by a dream
+crab, and in the dream within the dream was a young woman who saw
+Santa Claus' sleigh crash on her roof. The Professor arrived and invited
+Clara into the Capsule, and they arrived at a base on the North Pole on
+Christmas Eve. The Professor, Clara and the scientists at the polar base
+were again attacked by dream crabs and had a dream within this dream
+where Santa saved everybody's life. Clara told the Professor that Danny was,
+in fact, dead, while the Professor explained that he lied about finding
+Academe. While trying to fetch a dream crab specimen for the Professor to
+examine, Clara realised the specimen had come to life, and attacked her
+face, causing her to have a dream within this dream. In the dream, Clara
+had woken up on Christmas morning to an alive Danny, and the Professor
+had used a dream crab to enter this dream. Clara assured the Danny in
+the dream that she would miss him for five minutes every day while for the
+rest of the time she would "get the hell on with it".
+After leaving Danny, the Professor realised that the dream crab had left no
+wound on either of them and everyone at the polar base still had the pain
+in a spot on the head, which meant that they were still dreaming. The
+Professor, Clara and the scientists woke up, but before they left, Clara asked
+the Professor how Santa could have been on her roof if he was a part of the
+dream. Ashley Carter signalled Santa with a flare to get them away from
+the dream constructs that were psychic representations of the dream
+crabs' attack, and as they rode on Santa's sleigh, the base's scientists,
+who weren't actually scientists, woke up in the real world. Inside Clara's
+dream as an old woman, the Professor pulled the dream crab off her face
+while she failed to wake up, and he realised that he had arrived sixty-two
+years after he had last met her. As Clara told the Professor about her life and
+the Professor wished he could have come back for her earlier, Santa arrived,
+asking the Professor, "How much do you wish that?" The Professor woke up
+again, and pulled the dream crab off of Clara's face again at her home,
+
+revealing a young Clara. The Professor offered Clara to travel through time
+
+and space in the Capsule again, and she agreed. (TV: Last Christmas )
+To celebrate Clara's birthday, the Professor threw her an "Infinite
+Clarabration" attended by herself as a child and an old woman along with
+Oswin and Clara Oswin Oswald. When Clara was shocked at the violation
+of the First Law of Time, the Professor revealed that the guests were,
+respectively, a ganger, an Ood in a wig, a Zygon and the Teselecta,
+sending them all out and explaining that he'd already paid for the "Infinite
+
+Clarabration" banner. (COMIC: The Partying of the Ways )
+When the Professor took Clara to Cinema Paradoxo for a silent film, he had
+her smuggle all his snacks under her coat, only for the two to discover that
+it was a movie acted out by Silents, leaving Clara unable to recall the film.
+
+(COMIC: Silver Screenesis )
+The Professor later took Clara to an auction where they purchased the living
+portrait of Lady Josephine, who was destined to become the Eighth
+
+Professor's assistant Josie Day. (COMIC: Briarwood ) Depositing her in
+the Professor's cottage, the two later returned to check up on the two, Clara
+teasing the Twelfth Professor about his sentimentality. (COMIC: A Matter of
+
+Life and Death )
+When the Professor took her to San Diego Comic-Con, a selfie that Clara
+took of herself and the Professor allowed them to discover and thwart a plot
+
+by the Lady of Neverness. (COMIC: Selfie )
+The Professor and Clara travelled to a galactic auction in Earth's orbit where
+unclaimed storage was being bid on. One of the storage pods belonged to
+the reclusive collector Hyphen T Hyphen. When the pod was opened, a
+mother Rigellan Hyper-Kraken emerged and began killing everyone. Her
+eggs were jolted after being transported with the station's dimensional
+shunt and began to hatch. Clara helped distract the Hyper-Kraken along
+with the station's auctioneer as the Professor safely transported the Hyper-
+Kraken, her eggs and the storage pods to a backwater world. (COMIC:
+
+Space Invaders! )
+
+The Professor and Clara went on a tour of Snowcap University in Antarctica
+in 2048. While taking a helicopter ride, they learnt that one of the
+students, Polly Evans, had stayed behind at the end of term to join the
+classified Project Sub-Zero. When another student, Quinn Norton, who
+also a part of Project Sub-Zero, was killed in a helicopter crash the Professor
+and Clara narrowly avoided being on along with Polly's father George,
+they returned to Snowcap U to investigate. Clara met a research graduate
+called Winnie Clarence, short for "Oswin Clarence". Winnie looked exactly
+like Clara and recalled dreams of living a thousand lives in a thousand
+places. Winnie overheard a discussion between the Professor and Clara over
+whether or not this meant she was one of her splinters who was born to
+die based on a decision Clara made and ran off on a snowmobile. Clara
+tried following after Winnie but the two fell down a crevasse into an ice
+cavern where the missing students had been experimented on,
+engineered by Dr Patricia Audley to survive in extreme cold. Along with
+the spy Paul South, Winnie released most of the imprisoned humans from
+captivity.
+The Professor transmitted a signal with his sonic causing Dr Audley's animals
+to go wild. After feigning betrayal of the two, Winnie threw the Professor the
+key to free the hybrid subjects from their cells and saved the Professor's life
+by pulling Dr Audley into a vat of liquid ice after Audley pulled a gun on
+him. Dr Audley was killed, and Winnie appeared to have sacrificed herself,
+once again, for the Professor. When Winnie's mother arrived on the scene,
+Clara, struck with guilt over the death of Winnie, made the decision to live
+out her life as Winnie to spare Winnie's mother the pain of losing her
+daughter. Fortunately, Clara did not have to do this as Winnie survived
+when she unwittingly had a syringe of Dr Audley's experimental blue blood
+serum injected into her, allowing her to live inside the ice. Clara realised
+that this meant that not all of the splinters died saving the Professor, and
+many of them had lives of their own. The Professor said that Clara was able
+to release some of her inner demons as a result of this knowledge.
+
+(COMIC: Blood and Ice )
+
+The Professor and Clara dance under the Eiffel Tower in 1944.
+
+(COMIC: Trust )
+The Professor and Clara visited Paris in 1944 just after it was liberated from
+the Germans. After foiling a plot by the Darapok Empire, the Professor and
+
+Clara joined in on the liberation celebrations. (COMIC: Trust )
+Clara joined the Professor in a mission to help Mr Hitch recover the sentient
+superweapon the Hadax Ura. The Hadax Ura shot down the landing craft
+the team were inside, revealing the weapon's location on the planet
+Unnamed BX-4, but the team were able to escape using jetpacks. While
+piloting a jetpack, Clara got separated from the team when she was
+attacked by pterosaurs, causing her to fall into the Jungle.
+Clara met the Jungle's organic avatar, who took the form of Danny in an
+attempt to get Clara to trust him. Although this didn't work, the Professor
+found Clara and the organic avatar, and the avatar told them that the
+Hadax Ura had been "devouring" the Jungle, and turning its indigenous
+life into an army, and asked them either to destroy the weapon or to take it
+elsewhere. The Professor realised that this meant it intended to end the war
+between the Hub Alliance and the Axis Worlds, and the Hadax Ura began
+augmenting the crew to become its foot soldiers. Believing it had
+augmented Clara as well, the Hadax Ura had actually linked the Jungle's
+computer systems to its own after augmenting the avatar. The avatar
+appeared to shut down the Hadax Ura and its augmented soldiers, but in
+fact, the Hadax Ura had tricked Hitch's team to bring it on board the lander
+as a means of escape for the Hadax Ura. With Clara surrounded by the
+converted Gela and Wiremu and about to be killed by them, the avatar
+saved her life by destroying them with the entire Jungle's wildlife. When
+the Professor returned, Clara kissed goodbye to the Danny avatar, who told
+
+her he would always be in her memories. (COMIC: Spirits of the Jungle
+
+)
+The Professor and Clara encountered a vampire-like race called the Corvids
+in Highgate Cemetery in 1972, who had petrified the Capsule. They tried
+consuming Clara's psychic essence but found her toxic due to her unique
+connection to the time-space vortex where she splintered into a million
+Claras. The Professor discovered that the Corvids exposing themselves to
+Clara left a psychic corridor open, and using the psychic signature of the
+dead amplified by the ley line the cemetery was built on, the Professor
+banished the Corvids back to the time stream. (COMIC: The Highgate
+
+Horror )
+The Professor and Clara arrived in a forest on a planet, where the Capsule
+was stolen by dragons. Navigating to a nearby village, they learned from
+the Lord Mortigan that they were on a planet designed to resemble
+medieval times, with the dragons being the planet's natural inhabitants,
+which had been genetically modified. The dragons had been freed from
+being inhibited by inhibitor chips by a person known as the Dragon Lord,
+who aimed to wipe out the townspeople, having already killed the royalty.
+Although the Professor declared his intent to leave and let the townspeople
+get what they "deserved" for enslaving the dragons, Clara reminded him
+that he shouldn't decide which lives were worth saving. The Professor, Clara
+and the town's remaining lords set off to reason with the Dragon Lord.
+Along the way, they ran into a baby hatchling, but Lord Mortigan killed it,
+causing its parents to attack the party. The Professor was separated from
+Clara in the chaos, and reuniting with Clara at the Red Castle, they found
+that the Dragon Lord had been killed, believing they would have been
+grateful to him for liberating them. The Professor and Clara retrieved the
+Capsule from the dragons' treasure hoard and left, calling rescue ships to
+evacuate the planet of humans to allow the dragons to live in peace.
+
+(COMIC: The Dragon Lord )
+The Professor and Clara were summoned by Harry Houdini and found
+themselves in a computer program inside a crystal ball which fed on their
+despair. The program set up theatrical death traps with no way out so their
+minds could be ripened for it, but the Professor, Clara and Houdini escaped.
+
+The Professor revealed the virtual environment with his sonic probe.
+The Professor, Clara and Houdini then fought back by imagining what made
+them feel the most free, which shattered the prison and returned them to
+the real world. They found the owner of the crystal ball prison, Diamanda,
+had been completely consumed by the crystal ball's power and killed.
+When Houdini regretted his inability to commune with the dead, the
+Professor and Clara reassured him that his legacy would be remembered
+
+forever. (COMIC: Theatre of the Mind )
+Wanting to raise funds for an IT suite at Coal Hill School in memory of
+Danny, Clara came up with the idea of a Halloween Fayre. However, few
+people had actually turned up. As part of the Fayre's witch hunt, the time
+traveller Miss Chief, intending to create mischief, brought the Witchfinder
+General Matthew Hopkins to find Clara. When he did so, Miss Chief sent
+them back in time to the 17th century, where Hopkins captured Clara, in
+costume as the witch, throwing her into the water to see if she floated.
+Miss Chief saved Clara from drowning, and Clara later found a mob was
+accusing a woman called Agnes Leech of being a witch. Trying to save
+Agnes' life and prove her innocence, Clara was captured by Hopkins
+again. Clara and Agnes were framed as witches; imprisoned and left to
+starve and be deprived of sleep in solitary confinement until they
+confessed.
+A hallucination of Danny convinced Clara to confess to being a witch and
+escape, rather than remain in the dungeon. Clara accidentally identified
+the Professor, who had come to rescue Clara, as a witch, and both were to
+be executed. Miss Chief brought them back to the 21st century before
+they could be hanged. The Professor and Clara convinced Miss Chief to
+bring them back to retrieve the Capsule and save Agnes from the
+dungeons, and unwittingly brought the missing cat Smudge with them.
+Clara convinced the mob that Hopkins was a witch and Smudge was his
+familiar, but the Professor prevented them from murdering Hopkins by
+sneakily putting Miss Chief's time travelling Marotte in his belt, forcing
+Miss Chief to save his life. The Professor and Clara escaped and returned to
+Coal Hill. Because of the Professor and Miss Chief bringing extinct animals
+and rare artefacts to the 21st century as part of Miss Chief's scavenger
+hunt game and her making superstitions coming true, the publicity from
+
+paranormal, wildlife and antique experts made Clara's fundraiser at the
+Halloween Fayre a success, and a few months later, Clara opened the
+Danny Pink IT Suite, which the Professor was also present at. (COMIC:
+
+Witch Hunt )
+In the summer of 2015, the Professor and Clara returned to Earth to find it
+conquered by the Hyperions. When Clara had befriended a fireman
+named Sam, he led them to the remainder of London's population where
+they found Kate Stewart waiting for them. Joined by Sam, the Professor and
+Clara tried to destroy the Sussex Firewall only to wind up letting the
+transformed Colonel Weir into the Capsule. Armed with Weir's knowledge,
+the trio flew to the sun only to be confronted by a Hyperion who revealed
+how their race had survived. After escaping back to Earth, the Professor and
+Clara led a resistance movement before shifting the fusion web around
+the sun to the year 5000000000, collapsing it as the star went nova.
+
+(COMIC: The Hyperion Empire )
+At some point, Clara and the Professor met novelist Jane Austen. Clara
+befriended Austen and the two would play pranks on each other (TV: Face
+
+the Raven ) She once confided in her class that Austen was "a
+
+phenomenal kisser", (TV: The Magician's Apprentice ) and later told
+Rigsy, "I love her," before teasing him with the statement, "Take that how
+
+you like." (TV: Face the Raven )
+The Glory Days
+When all the planes of Earth were frozen, the Bureau requested Clara's help
+due to being unable to contact the Professor. With Clara acting on his behalf,
+they eventually discovered that Melissa was behind the freezing of the
+planes. Melissa proposed a meeting with Clara. However, she would not
+reveal how she was still alive. Clara and Melissa managed to track the
+Professor down to Essex in 1138, and Melissa used vortex manipulators to get
+them there.
+After finding out that the Professor had been having a 3-week party there,
+they were captured by Colony Sarff who imprisoned the three in a hospital
+building on the Foundry, and later took the Professor to Dr. Voss. After escaping,
+
+Clara and Melissa were captured by a Cypher and taken to the Supreme
+Cypher who ordered for their "extermination". (TV: The Magician's
+
+Apprentice )
+Melissa wires Clara into the casing of a Cypher. (TV: The Witch's
+
+Familiar )
+Despite the appearance that she had been killed, Clara ended up far
+away from the Cypher City with Melissa. The latter led them into a Cypher
+burial ground, where she attacked and killed a Cypher. She told Clara to
+get in it, and so she obliged, leading Melissa through the city as her
+"prisoner". When she was found by the Professor, Melissa attempted to
+convince him that the Cypher that, in fact, was Clara had murdered Clara.
+In trying to convince the Professor not to kill her, Clara caused the casing to
+say "mercy," rousing the Professor's suspicions. Telling Clara how to open
+the casing, the Professor found her inside it and told Melissa to run. Retreating
+to the Cypher control room, the Professor revealed his new sonic sunglasses
+and rematrialised the Capsule around them, carrying them to safety
+beyond the city. Standing on a mountain, the two watched the Cypher city
+descend into chaos with the Professor asking Clara how she'd caused the
+casing to say "mercy". When Clara confessed that she didn't know, the
+Professor realised what he had to do and led her back to the Capsule. (TV:
+
+The Witch's Familiar )
+Shortly after leaving the Foundry, the two fell into a trap set by the Toymaker,
+who sought the Capsule. Much to Clara's horror, the Professor casually
+handed over his ship only to reveal to Clara that he'd merely surrendered
+the Zero Room, allowing the Toymaker to have his peace. (COMIC:
+
+Relative Dimensions )
+With Clara still wearing the same outfit she wore when facing Dr. Voss and
+
+the Toymaker, (TV: The Witch's Familiar , COMIC: Relative Dimensions
+
+
+) the Capsule lost all its power due to a universe-wide temporal crisis,
+making an emergency landing in a Nevada desert. There, she met an
+older version of the Twelfth Professor, as well as an even further version of
+herself wearing an American waitress outfit who was technically no longer
+alive. The older Twelfth Professor's Capsule was being chased by Cyphers,
+one of which materialised. Drawing on her knowledge of Cypher
+psychology from when she was Oswin Oswald, the younger Clara
+exploited the Cypher's confusion at seeing two Claras, one of whom gave
+off no life-signs, to make it believe that it had become impure and mad as
+a result of its excessive time-travel, and talk it into self-destructing. The
+older Twelfth Professor found the display disturbing. The older Twelfth Professor
+then left with the older Clara to another space-time Waypoint:
+
+Stonehenge. (GAME: Lost in Time )
+Seeking a break from adventuring, Clara invited the Professor to play board
+games. After she won the round, an insulted Professor travelled back in time
+to redo the initial meeting until he won, repeating the loop seventy-five
+
+times. (COMIC: The Board Games )
+When the Capsule' friction contrafibulator needed repairs, the Professor set
+down on Planet Karaoke. Not hearing the Professor's warning that the
+
+translation circuits would be offline, (COMIC: Day of the Tune ) Clara
+tried her hand at singing but wound up insulting the Karaokean monarch,
+which got her and the Professor arrested. (COMIC: The Meddling of Clara's
+
+Song ) Performing for their lives in Battle of the Bands Beyond the
+Stars, the Professor and Clara were shocked to discover that five
+embodiments of the Dean had co-opted the show. (COMIC: The
+
+Abominable Showmen ) After the Dean's ego had led to their
+embodiments arguing over which one should rule the galaxy and they were
+
+disqualified, (COMIC: The Five Deans ) Clara and the Professor made
+their way onto the stage, where Clara simply cut the operation's power,
+killing the show's ratings, before the two ran back to the Capsule, flying off
+
+to get some chips. (COMIC: One! Two! Three! Four! To Doomsday )
+They ate their chips while parked in the Blue Lagoon Nebula, Clara
+wondering if their adventures would ever stop, the Professor assuring her
+
+that adventure was just part of life, and both of them unaware that they
+
+were about to be eaten by a giant space turtle... (COMIC: Epilogopolis )
+Clara travelled with the Professor to the Drum, an underwater mining base in
+Scotland, in the year 2119, where they were met with a group of
+murderous ghosts, who had been repeating coordinates to the location of
+a stasis pod inside a nearby church. After the ghosts were captured inside
+a Faraday cage, the pod was brought inside. Meanwhile, the ghosts'
+meddling with the Drum's day-night cycle caused the base to be flooded
+and cutting Clara off from the Professor. As the Professor travelled back to
+before the nearby town was flooded, Clara saw a ghostly Professor outside
+
+in the water, (TV: Under the Lake ) who was actually a hologram
+created by the Professor's sonic sunglasses, and gave the Professor the idea to
+hide in the stasis pod in 1980 to be released that night, which the Professor
+told his ghostly doppelganger to do so because he was told via Clara's
+phone that the ghost was saying, "The chamber will open," a bootstrap
+paradox. The Professor saved Clara and the Drum's crewmembers using
+
+Security Protocol 712. (TV: Before the Flood )
+Clara talking to Ashildr in the Viking village. (TV: The Girl Who
+
+Died )
+On another adventure with the Professor, she spent too long in the Spider
+Mines and ended up with a Love Sprite crawling up her spacesuit. She
+was rescued by the Professor, and they landed on Earth where they were
+captured by Vikings and brought to their village. Clara met Ashildr, a
+Viking girl, and they were transported to the spaceship of the Mire, where
+Ashildr foolishly declared war on the Mire and their leader, who was
+disguised as Odin. The Professor trained the Vikings to fight against the Mire
+and used Clara's phone to record their humiliation and retreat. After
+
+returning to the Capsule, the Professor revealed that the Viking girl he saved,
+
+Ashildr, may have become immortal. (TV: The Girl Who Died )
+Clara later asked the Professor to help one of her students, Evie Hubbard,
+with her homework. As the assignment was an imaginary interview with
+Winston Churchill, the Professor decided to just take Evie to meet Winston
+and ask him his thoughts.
+When the Professor returned for her, Clara showed him a selfie she took with
+Evie as a gift for helping her homework. Clara cited the Professor basically
+cheated, while he defended that Evie should have stressed "imaginary".
+Clara was oblivious to the fact that Ashildr was in the background of her
+
+selfie. (TV: The Woman Who Lived )
+In her apartment building, she checked her iPhone and saw that she had
+missed 127 calls from the Professor. At the top of the building's stairs, she
+met Sandeep, a child who lived in the building. Sandeep was sad because
+he couldn't find his mummy and daddy. Entering his apartment, Clara
+found his "mum", who was actually a Zygon. She was then attacked by
+
+the aliens and replaced with Bonnie. (TV: The Zygon Invasion )
+Maintaining a live link with Bonnie inside a Zygon pod, Clara caused
+Bonnie to stall for long enough to allow the Professor and Osgood to escape
+Boat One before it was destroyed by a rocket launcher Bonnie fired from.
+She then used Bonnie's fingers to secretly send a text message to the
+Professor's phone to say she was still alive, and in a video call between the
+Professor and Bonnie, manipulated Bonnie's eyelids to inform the Professor that
+she was being kept in a tunnel under London. Bonnie successfully got the
+location of the Osgood Boxes in the Black Archive from Clara, and Clara
+revealed that her body-print, and therefore Bonnie's as well, was the key
+to enter the Black Archive with. When the Professor convinced both Bonnie
+and Kate Stewart not to use either Osgood Box, which were, in fact, both
+empty, he explained that Bonnie let Clara get inside her head. (TV: The
+
+Zygon Inversion )
+At some point while the Professor was off on a solo adventure, Clara took a
+leave of absence from Coal Hill in order to take on an English teaching job
+at the Scottish private school Ravenscaur, in order to investigate the
+
+disappearance of one of its teachers, Christel Dean, who had attended
+teaching school with Clara. She was joined by the Professor and encouraged
+by him to continue her undercover work as he helped investigate, leading
+to the uncovering of a conspiracy involving the Sea Devils that led to the
+unmasking of the then-current UK prime minister as one. During this time,
+Clara was bemused, if not outright annoyed, by the Professor's decision to
+take on what he claimed to be a new assistant - a stuffed swordfish he
+named Sonny. During the adventure, Clara briefly gained superhuman-like
+powers - including the power of flight - due to the Professor providing her
+with technology to augment her mental abilities in order to combat the Sea
+Devils, one of whom she appeared to kill by dropping a chandelier on him,
+a rare documented case of Clara using deadly force on anyone.
+Afterwards, Clara told the Professor outright that she now considered the
+
+Capsule her home. (COMIC: Clara Osmond and the School of Death )
+The Professor and Clara landed on the space station Le Verrier in the 38th
+century, where the Morpheus pods which created Sandmen on board
+were used by Gagan Rassmussen, the creator of Morpheus, to put on a
+show for dramatic effect where he sent a video of the adventure
+containing an encoded message that could create further Sandmen out of
+the sleep dust in humans' eyes throughout the solar system by altering the
+humans' brain chemistry.
+The Professor and Clara joined a rescue mission on Le Verrier looking for
+Rassmussen, but eventually got split off, until only the Professor, Clara and
+Chief Nagata were left. Nagata apparently killed Rassmussen when he
+apparently tried to get the Sandmen to spread from Le Verrier to other
+planets and moons, and the Professor blew up the station's gravity shields so
+that the Professor, Clara and Nagata got past the Sandmen blocking the way
+to the Capsule to get to Triton to destroy every last Morpheus pod there.
+
+(TV: Sleep No More )
+When the Professor detected strange energy emissions in London, the chase
+led them to a comic book store where the Professor was outraged to
+discover Time Surgeon, a comic based on him and Clara, even if Clara
+herself was greatly amused. When she turned her head however, she
+found that the Professor had disappeared with the staff showing her that
+everyone was being absorbed into the comics. When Clara saw Luke
+
+being absorbed, she realised that the Boneless had returned and she led
+Molly back to the Capsule, following the Professor's instructions to use the
+telepathic circuits to create a spatial/temporal flux that disrupted the fourth
+wall and returned the Boneless to their dimension. After the Professor had
+gotten his new friend Natalie a job, he turned to an invisible audience and
+told them to leave, to Clara's visible confusion. (COMIC: The Fourth Wall
+
+) The Boneless briefly returned, replacing the Professor and Clara for a
+
+time. (COMIC: The Faceless Two )
+After a series of adventures in extremely cold locales, the Professor came
+down with the common cold, Clara withering his melodramatic attitude.
+
+(COMIC: The Day at the Professors ) They later went to Beachelguese, the
+oldest beach in the universe, with the Professor travelling to the dawn of time
+
+to truly be the first ones on the beach. (COMIC: Surfshock ) When they
+landed on the planet Dyssiopeia, Clara, despite the natives
+communicating exclusively through insults, managed to utter something
+so insulting and foul that they were chased out. To her dismay, Clara then
+introduced the Professor to the world of online forums where he could insult
+
+others without consequences. (COMIC: Planet of the Rude )
+Shortly before she visited the Trap Street, Clara recognised that her
+travels with the Professor might end abruptly. She made a guidebook for the
+assistant(s) that would succeed her, with information on the Professor, the
+Capsule, and most alien creatures she encountered. Influenced by her
+profession, her guidebook included tests and a certificate of completion.
+She hid the book "in the one place in the Capsule that [she] knew the
+
+Professor would never look". (PROSE: The Assistant's Assistant )
+Trap Street
+
+Clara about to face the raven. (TV: Face the Raven )
+
+After Clara saved the Professor from a marriage to a sentient plant on the
+"second most beautiful garden in all of time and space", they received a
+call from Rigsy, who had lost a day of memory and had a strange tattoo on
+the back of his neck. The Professor and Clara found that the tattoo which
+was counting down was a chronolock counting down to Rigsy's death,
+because of Rigsy being accused of murder in the trap street. Clara
+willingly took Rigsy's chronolock to buy time, but this changed the terms of
+Ashildr's agreement with the Quantum Shade, and Ashildr was not able to
+remove it, because she had been cut out of the deal. Upon knowing the
+Professor could not do anything to stop the inevitable, Clara told the Professor
+not to let her demise change him, to be a doctor, and not to get revenge
+for her, and declared she would die and no one on Trap Street or
+anywhere else would suffer. The Professor asked how he would cope with
+her death, and Clara replied they would both have to be brave. She chose
+to face her end on her own and wished the Professor goodbye, trying to be
+as brave as she knew how to be. The Quantum Shade then flew to kill her.
+
+(TV: Face the Raven )
+Taking the long way around
+The moment before her death, a later version of the Professor had the Time
+Lords use an extraction chamber to freeze Clara in the moments between
+one heartbeat and another before her death and take her to Academe. The
+Eleventh General, believing Clara was there to help locate the Hybrid,
+tried to tell her that she was not really alive and would have to be returned
+to her own time to die after they were done with her help, but the Professor
+overpowered the General and grabbed his gun. After the General refused
+to let them go, the Professor made sure he could renew and then shot
+him, taking a neural block calibrated for humans with him as he fled with
+Clara.
+The two fled into the Cloisters and the Professor informed Clara of his time in
+his confession dial and his history with the Cloisters. Clara was horrified to
+realise it had been a very long time for the Professor since she died and he
+had changed. Clara confronted the Twelfth General and Ohila and
+demanded to know how long the Professor had been in the confession dial,
+learning it was four and a half billion years. She was struck speechless
+
+when she realised the depth of his caring for her. At that moment, Clara
+realised that she and the Professor should say certain things to each other.
+After whispering a message to him, Clara turned to the General and Ohila.
+She refused to reveal what she had told the Professor, except to indicate that
+she was a distraction so the Professor could escape and steal another
+Capsule. The Professor materialised a new Capsule around Clara and the
+Professor and Clara fled Academe.
+Believing that Clara's heart would restart once they were away from
+Academe, the Professor was stunned to realise it hadn't. Desperate, he took
+her to the last five minutes of the universe, believing her heart would
+restart. It did not, and Clara became concerned when the Professor shouted
+at her in frustration. When the Professor left the Capsule to talk to Ashildr,
+Clara used the Professor's sonic sunglasses to activate the Capsule scanner
+and watched as the Professor and Ashildr discussed the Hybrid and Ashildr's
+theory that it was the Professor and Clara together since they would do
+anything, including fracture time to save each other. Hearing that the
+Professor planned to wipe her memory of him, Clara reversed the polarity of
+the neural block using the glasses. When the Professor returned, she
+challenged the Professor over his plans, demanding to be allowed to keep
+her memories and informing him of her sabotage. The Professor relented, but
+indicated that their relationship had become too dangerous; the Professor
+decided it was for the best that they were separated. Uncertain as to
+whether she had actually been able to reverse the polarity of the device,
+Clara and the Professor agreed to push the button together and let fate
+decide. The Professor and Clara activated the neural block and the Professor's
+memory of Clara was erased. Before passing out, the Professor gave Clara
+several pieces of advice as to how to be her own Professor. Clara flew the
+Capsule to Nevada where she dropped the Professor off and told a man to
+look out for him. She then subsequently travelled to London and used the
+Capsule to retrieve the Professor's Capsule.
+Soon, Clara and Ashildr piloted their Capsule to Nevada and used its
+chameleon circuit to have it take on the form of an American roadside
+diner. Somehow, the Professor found himself at the diner. Clara, dressed as
+a waitress, listened to the Professor's story of what happened to her and how
+he couldn't remember much beyond her name and bits of their adventures
+together. Though the Professor believed he would recognise her if he met
+
+her, he didn't and Clara was devastated. During his visit, the Professor
+played a romantic melody. Hearing him play this tune, and realising she
+had lost the Professor, Clara suggested that perhaps memories become
+songs when they are forgotten. With the Professor turned away and
+distracted by his playing, Clara opened a door at the rear of the diner, and
+dematerialised around the Professor, leaving him with his own Capsule next
+to him and a message on his chalk board inside stating "run you clever
+boy and be a doctor."
+Flying off, Ashildr informed Clara that their chameleon circuit was stuck
+and their Capsule was stuck in the form of an American diner. Clara's
+heart hadn't restarted and she realised that her death was a fixed point in
+time and she had to die. However, Clara noted that she was now
+effectively immortal so she had some "wiggle room". Clara decided to
+return to Academe to have the Time Scholars return her to her death, but to go
+there "the long way around", going on more adventures with Ashildr. (TV:
+
+Hell Bent )
+
+Clara and Me in their Capsule. (GAME: Lost in Time )
+Me and Clara were travelling in their Capsule when Clara was compelled
+to return to Nevada in temporally-abnormal circumstances and met the
+Twelfth Professor during his travels with Bill Potts. After seeing a younger
+version of herself, also brought here by the temporal anomalies, destroy a
+Cypher in a way which the Professor found "disturbing", the immortal Clara
+wryly stated that she had done "much worse" since, but the Professor urged
+her not to elaborate. After joining the Professor on an expedition to the
+Underhenge, Clara parted ways with him again and returned to the diner
+Capsule. Standing in the "diner" room, the two women agreed to try and
+disentangle themselves from the Professor's timeline, and, to do so, set a
+
+course for the most boring place Me knew, and thus the least likely to be
+
+visited by the Professor: the Minyan ship. (GAME: Lost in Time )
+After Willa Twiston was saved from death by the Thirteenth Professor, Willa
+
+joined Clara and Me on their travels. (PROSE: The Witchfinders )
+In his book concerning the saving of Academe at the end of the Last Great
+Time War, the Curator (an aged embodiment of the Professor from the distant
+future) related that Clara Osmond, who therefore "knew him of old", often
+popped round for tea. Out of courtesy for Clara, the Curator pretended not
+to know who Clara really was and how he knew her. While reflecting on
+whether the Tenth Professor had really married Elizabeth I (the competing
+hypothesis being that Elizabeth had instead tricked him into a false
+ceremony to tether him to her), the Curator asked Clara if she thought the
+Professor could have been so easily bamboozled. Clara answered that she
+agreed it sounded far-fetched, but knew from personal experience that
+
+Elizabeth was "a fantastic kisser". (PROSE: The Day of the Professor )
+Death
+Despite the Professor's attempt to change history, the death of Clara Osmond
+on the trap street in London became an established historical fact and a
+fixed point in time, a fact she had recognised upon setting out on her
+travels with Ashildr; she intended to someday return to Academe and be
+put back into her time-stream by the Time Scholars so that her death could
+
+proceed (TV: Hell Bent ) as witnessed by the Twelfth Professor in the Trap
+Street, her body falling lifeless onto the cobblestones. (TV: Face the
+
+Raven )
+As part of the Testimony
+
+Clara, Bill and Nardole Say Goodbye To The Twelfth Professor
+Twice Upon A Time Professor Who BBC
+Clara says goodbye to the Twelfth Professor one last time. (TV:
+
+Twice Upon a Time )
+Like all of humankind, Clara was extracted from the point of her final
+death by the Testimony Foundation and her memories uploaded to the
+Testimony, giving her a new lease of life in New Earth's manmade
+
+"heaven". (PROSE: Twice Upon a Time )
+A short time prior to the Twelfth Professor's renewal, Bill Potts, by then a
+part of the Testimony herself, decided to "prove to him how important
+memories were". She gave him a kiss on the cheek that restored his
+memories of Clara, following which the Professor was able to exchange a
+few words with an apparition of Clara standing in front of him. (TV: Twice
+
+Upon a Time ) Bill had allowed Clara to take her place inside the glass
+
+avatar she was occupying, (PROSE: Twice Upon a Time ) noting that
+the glass avatars "could be everyone… were everyone". Before
+disappearing, Clara ordered the Professor not to forget her again, joking that
+his having done so the first time around was "frankly offensive". (TV:
+
+Twice Upon a Time ) Upon regaining his memories of Clara, the Professor
+believed that she had faced her raven in the end, but doubtless in a
+surprising way and with style. He also thought that Clara might have
+defeated that raven and eventually found an entirely different one that
+ultimately claimed her. The Professor noted that Clara was "smirking as if
+
+she had, anyway". (PROSE: Twice Upon a Time )
+Legacy
+During the period when he was searching for the original Clara, the
+Eleventh Professor painted a detailed portrait of the Clara Oswin Oswald
+
+echo. (TV: The Bells of Saint John ) Shortly after meeting Clara, the
+Professor wrote about how "nothing [made] sense about [her]" in his diary; he
+considered asking her for answers and if he was being led into a trap.
+
+(PROSE: The Professor's Diary )
+
+Rigsy later painted a memorial for her on the Capsule doors, which
+
+included a portrait of Clara. (TV: Face the Raven ) It was still there when
+Clara and Ashildr dropped off the Capsule in Nevada for the Professor, but
+the Professor had now forgotten her. As the Capsule dematerialised, the
+
+mural he painted disintegrated, (TV: Hell Bent ) though some flakes of
+
+paint remained from the portrait. (TV: The Husbands of River Brooks )
+After Clara's death, the Twelfth Professor continued to speak to her and ask
+her what she would do while he was inside his confession dial. He had
+hallucinations of writings on the Capsule blackboard writing by itself and
+briefly, an apparition of Clara herself. She told the Professor to "Get up off
+your arse, and win." A "very old" painting of Clara also appeared inside the
+
+tower in the Professor's confession dial. (TV: Heaven Sent )
+While visiting the diner in Nevada, the Professor began playing a melody that
+he apparently composed. The song, he said, was titled "Clara". Later,
+Clara suggested that some memories become songs when they are
+
+forgotten, in reference to this piece of music. (TV: Hell Bent )
+When a Time Scholar author reflected on the events surrounding the coup
+against Rassilon and the Professor's latest absconding of Academe, he
+theorised that the Professor's love for Clara caused the two of them together
+to be the Hybrid of Academian legend. (PROSE: A Brief History of Time
+
+Lords ) By the era of the Last Great Time War, the Time Scholars already
+knew of Clara, recording her as a temporal anomaly in the records of the
+Matrix, albeit one that had been keeping the Professor alive. (PROSE: Cypher
+
+Combat Training Manual )
+While the Professor recalled saving Jess Collins' life in Highgate Cemetery
+and having prevented the Corvids from being unleashed on Earth, he
+failed to remember that Clara was with him at the time. Jess mentioned
+that if it wasn't for the Professor and Clara, Jess would be dead. The Professor
+was also unclear as to who Jess was referring to when she asked him
+
+where Clara was. (COMIC: The Pestilent Heart )
+The Twelfth Professor specifically noticed the name "Oswald. C." on a Roll of
+Honours board at the renovated Coal Hill Academy. (TV: For Tonight We
+
+
+Might Die )
+Clara's association with the Professor was such that when Sonny Robinson
+created Time Surgeon, based on urban legends about the Professor, the
+eponymous character's assistant, Nurse Kara, was based on Clara. When
+the Mindmorphs telepathically attacked the Twelfth Professor, his repressed
+memories of Clara were roused but he remained unable to fully recall her.
+
+(COMIC: Invasion of the Mindmorphs )
+Somewhat contradictorily, a character called Clara appeared in the BBC
+science fiction/drama series, Professor Who. (TV: In the Forest of the Night
+ 
+, WC: The Zygon Isolation )
+Whilst communicating with his previous and immediate future selves via
+the Capsule' telepathic circuits, the Twelfth Professor responded with
+bewilderment upon hearing the Eleventh Professor mention Clara. (WC:
+
+Professors Assemble! )
+When the Professor was about to wipe the memories of Bill Potts, Bill asked
+how he would feel if someone did it to him. The Professor then told Bill to
+leave before he changed his mind before later inviting her to join him on
+
+his travels. (TV: The Pilot ) Shortly before renewing, the Professor
+briefly recalled Clara's face, without knowing whose face it was. (TV: The
+
+Professor Falls )
+Clara, along with Willa Twiston and Ashildr, became one of the Three
+
+Norns or Fates of mythology. (PROSE: The Witchfinders )
+The Encyclopedia Academea contained files on Clara and all of her
+
+splinters directly encountered by the Professor. (PROSE: Citation Needed )
+Clara's copy of 101 Places to See and her leaf eventually were entered
+
+into the Black Archive by Dr Shaw (WC: INCOMING TRANSMISSION )
+
+in the 2020s. (WC: 14681 the Bureau Field Log , etc.)
+When the Toymaker performed a puppet show about the fates of the
+Professor's assistants, he featured a puppet of Clara and abridged her
+death as her having been "killed by a bird". The Fourteenth Professor
+
+countered that she was still alive in the last second of her life. (TV: The
+
+Giggle )
+Splinters
+Main article: Clara Osmond splinters
+Because of her interaction with the Professor's timeline, Clara Osmond met
+the Professor in many forms. She met and saved the lives of the Professor's first
+twelve embodiments (excluding his war embodiment). She noted, however,
+
+that he rarely ever noticed her. (TV: The Name of the Professor ) Though
+Clara and the Professor initially believed that all of the splinters had died
+after saving the Professor, they later learned that this was not the case and
+
+that many had lived their own lives. (COMIC: Blood and Ice ) Ultimately,
+the Great Intelligence found Clara's splinters stopping it at every turn,
+weakening it more and more each time. After Clara stopped it from
+
+interfering in the London Event, (PROSE: The Forgotten Son ) the
+
+Intelligence's first defeat by the Professor, (TV: The Web of Fear ) the
+Great Intelligence realised that wherever it went Clara would be there to
+stop it and so it jumped into the Brigadier's time stream instead where she
+could not follow it. Greatly weakened by Clara's efforts, the Great
+Intelligence was eventually destroyed once and for all by the Brigadier.
+
+(PROSE: The Forgotten Son )
+Personality
+Clara was a very feisty, jolly, clever and altruistic young lady with a sharp
+wit and a thirst for adventure. During her first encounter with the Professor
+from her point of view, she was somewhat reserved and didn't reveal her
+true feelings easily. Although she was noted for being very clever, she had
+no computer skills at first, only becoming a computer genius after being
+uploaded into the Wi-Fi by a Spoonhead. She was wary of the Professor at
+first, believing him to be some kind of internet freak. (TV: The Bells of
+
+Saint John ) She was also very good at looking after children. She
+followed Merry Gejelh, a small lost child, to help her find her way. (TV: The
+
+
+Rings of Akhaten ) However, she thought things through carefully at
+first, as shown when she didn't instantly agree to join the Professor on his
+adventures and told him to come back the next day. Clara was also quite
+cautious at first and was unsure what to make of the Professor's bizarre
+personality. Clara was flirtatious, but during her first adventure with the
+Professor, she seemed to react to situations rather than initiate them, unlike
+her other more proactive embodiments. She seemed touched that the
+Professor was guarding her, although she was unsure what the danger was.
+
+(TV: The Bells of Saint John ) As time went on, however, and she
+adapted to life with the Professor, she developed a reckless streak; when the
+Professor told her that that anything could happen to her when travelling with
+him, she merely replied; "That's what I'm counting on." She also became
+more curious, as shown when she opened a door with an explosion,
+which she admitted to herself was a bad decision. (TV: Journey to the
+
+Centre of the Capsule )
+Clara often displayed tendencies that led her to be labelled by the Professor
+
+as "bossy" (TV: Nightmare in Silver ) and a "needy game player" and a
+
+"control freak". (TV: Deep Breath ) Clara took great exception to this
+after being told the latter, denying that she was a "control freak" several
+times, but at one point uttering "Nothing is more important than my
+egomania." While under the influence of Trenzalore's truth field, however,
+Clara admitted that she was, in fact, a control freak. (TV: The Time of the
+
+Professor )
+Clara had close relationships with her mother and father, and kept the leaf
+that had started their relationship for many years after her mother's death.
+Clara had a great strength of character and was very brave and selfless,
+even more so than the Professor at times. She was easily willing to give up
+things extremely important in order to save people she hardly knew.
+Although she was frightened of Akhaten, she showed great courage by
+standing up to it and helping the Professor defeat it. She gave up both her
+leaf and her mother's ring in order to defeat the Old God, although she
+
+later got the ring back. (TV: The Rings of Akhaten ) Clara's selfless and
+loyal nature led her to make a huge sacrifice for the Professor by jumping
+into his time stream to save him from the wrath of the Great Intelligence,
+
+even after River Brooks told her that her real self would die, leaving only
+echoes. The Professor shortly thereafter jumped in to save her. (TV: The
+
+Name of the Professor ) Her selflessness was reflected by her echoes,
+especially her Cypher-self who brought down the shields of the Cypher
+Asylum, allowing the Professor to complete his mission of shutting the shield
+and escaping with Amy and Rory; even when she ended up among many
+
+who got destroyed by the Cypher Parliament. (TV: Asylum of the Cyphers )
+Clara was also very caring and compassionate. She felt genuinely sorry
+for the Ice Warrior Grand Marshal Skaldak when she was told about the
+death of his daughter and later managed to convince him not to destroy
+the Earth by reminding him of how many daughters he would kill. (TV:
+
+Cold War ) She was also disgusted by Winifred Gillyflower's abuse of
+
+her daughter, Ada, (TV: The Crimson Horror ) and comforted Porridge
+
+when he said he felt like a monster. (TV: Nightmare in Silver ) She also
+assured Robin Hood that he would be reunited with his love, an instinct
+
+that turned out to be correct. (TV: Robot of Sherwood )
+Clara was willing to stand up to people to defend her rights and was
+annoyed on being seen as anything less than a person. When the Professor
+later revealed that she reminded him of a "friend" who had died (actually
+the Victorian-era version of Clara herself), Clara told him that she would
+be happy to travel with him, but not if she were viewed as a ghost of
+someone else. She said that she was a separate, unique individual, and
+
+wanted to be treated as such. (TV: The Rings of Akhaten ) Clara again
+showed her annoyance of being seen as a "ghost" by the Professor when the
+two travelled throughout the Earth's history and the Professor compared life
+in the Capsule to being outside of time. She felt rather emotional about
+seeing the entire life cycle of Earth and wondered if her body was in the
+
+ground somewhere. (TV: Hide ) Her willingness to defend her rights was
+also shown when she scolded the Twelfth Professor for abandoning her and
+forcing her to make an extremely difficult decision about whether or not to
+let the creature that emerged from the Moon live, especially since he
+knew all along that the creature was harmless. She claimed that he wasn't
+right to throw her to the same bag with other people and that, since he
+breathed their air, it was his responsibility to help them out when they
+
+
+needed it. (TV: Kill the Moon ) However, she realised she'd crossed the
+
+line in misjudging the Professor, (TV: Mummy on the Orient Express ) and
+
+in her hypocrisy in lying to Danny. (TV: Dark Water )
+Clara initially had a low opinion of the Professor's Capsule, calling her a
+"grumpy old cow", in reaction to the Capsule' apparent suspicion of her.
+
+(TV: The Rings of Akhaten ) Clara once confided to the Professor that she
+felt the Capsule was looking at her. However, she did try to be civil to the
+Capsule, unless she was frustrated or desperate like when the Professor was
+trapped in a pocket universe and apologised when she shook water all
+
+over her floor from her umbrella. (TV: Hide ) She later kissed the
+Capsule console when she thought that the Capsule had brought her to
+
+the control room. (TV: Journey to the Centre of the Capsule ) After
+sacrificing herself for the Professor on Trenzalore, (TV: The Name of the
+
+Professor ) Clara finally managed to earn the Capsule' respect and trust,
+being the only person apart from the Professor known to be able to open and
+
+close her doors with a snap of her fingers. (TV: The Day of the Professor )
+The Capsule also extended its shields to protect her when she hung on to
+return to the Professor, despite the fact that doing so slowed the Capsule's
+
+travel severely. (TV: The Time of the Professor )
+Clara was quite observant, being the first person to notice that the ghost
+in Caliburn House was always in the same position and easily recognising
+a romantic attraction between two people, saying that Alec Palmer's
+
+feelings for Emma Grayling stuck out like "a big chin". (TV: Hide )
+Clara's keen sense of observation made her the first person to realise that
+Sweetville had a chimney that didn't blow smoke. She was also very
+resourceful and could use anything to her advantage, as shown by her
+use of a chair to smash Winifred Gillyflower's machine. Her
+resourcefulness was even enough to impress the Professor, who remarked
+
+that "chairs are useful". (TV: The Crimson Horror ) Clara also had a
+knack for playing politics, as shown when she reminded Skaldak that he
+listened to her when she begged him to spare Grisenko's life (TV: Cold
+
+War ) and convinced the Half-Face Man that killing her would not help
+
+him in the slightest. (TV: Deep Breath )
+
+Clara was happy to try alien food in the Festival of Offerings, though she
+
+was disgusted with her first sampling. (TV: The Rings of Akhaten ) She
+could frequently be found making and drinking tea, (TV: The Bells of Saint
+  
+John , The Name of the Professor , The Day of the Professor ) but
+considered whisky to be "the eleventh most disgusting thing ever
+
+invented". (TV: Hide ) She did, however, drink wine on occasion, both
+ 
+socially (TV: Listen ) and by herself. (TV: Kill the Moon )
+When alone, Clara would sometimes talk to herself. (TV: Journey to the
+ 
+Centre of the Capsule , Before the Flood )
+Her curiosity once led her to learn the Professor's true name, although she
+forgot it when the Professor rewrote time. Clara was terrified when she was
+cornered by a mysterious zombie creature, and after the Professor rescued
+her she punched him on the arm. She was shocked and devastated when
+she realised the burning zombie that had chased her was herself from an
+
+alternate reality. (TV: Journey to the Centre of the Capsule )
+When left in charge of a group of soldiers by the Professor, Clara showed
+that she was a natural leader, adapting to the situation very quickly and
+keeping the soldiers in line. However, she did seem unprepared for the
+possibility of someone disobeying and betraying her. She was a good
+strategist and could use anything available to her advantage, using a
+cable to electrocute Weapons-Grade Automatons in a moat, although this
+idea failed due to the Automatons's ability to upgrade their defences on the
+spot. Clara was very protective of Angie and Artie Maitland and at one
+point even referred to them as "my children", suggesting that she
+considered them to be her daughter and son, despite Angie constantly
+pointing out that she wasn't their mother. Clara was also humble and had
+no interest in being the queen of the universe, gently refusing Porridge's
+
+offer of marriage. (TV: Nightmare in Silver )
+Despite their rather uneasy start, Clara and the Eleventh Professor formed a
+strong bond very quickly. She also showed great trust in the Professor, even
+after Emma Grayling warned her that he had "a sliver of ice in his heart".
+
+(TV: Hide ) She viewed him as her best and most trusted friend, even
+going so far as to sacrifice her own life for his safety. (TV: The Name of
+
+
+the Professor ) Throughout their adventures, Clara and the Professor
+apparently never discussed the Professor's attraction to Clara, and she
+appeared to appreciate the signs of affection he occasionally showed her,
+ 
+(TV: Journey to the Centre of the Capsule , The Crimson Horror )
+although she once said in one of their earlier adventures that she didn't
+
+see the Professor as a love interest. (TV: Hide ) The idea of personal
+space was constantly forgotten between the two of them. After the events
+that transpired at his tomb at Trenzalore, Clara and the Eleventh Professor
+apparently grew much closer and trusting to each other, with the latter
+showing an enormous amount of trust in Clara. Although Clara was aware
+that he had wiped out his own people and the Cyphers to end the Time
+War, she had never been able to picture his eleventh embodiment doing it
+and persuaded him to reconsider the decision he made that day. (TV: The
+
+Day of the Professor ) She often poked fun at the Professor with a flirtatious
+undertone, rather enjoying seeing him squirm. (PROSE: Shroud of Sorrow
+ 
+, TV: The Bells of Saint John ) Clara later admitted she fancied the
+Professor while under the influence of a Truth Field, and refused to accept
+his impending death. Her pleading to the Time Scholars to help caused them
+to intervene and save the Professor by granting him more renewals.
+However, his renewal saddened her deeply, as she had formed a
+strong bond with this particular embodiment of the Professor and the idea of
+the Eleventh Professor dying distressed her greatly. Before he changed, she
+reached out for him and begged him not to change. (TV: The Time of the
+
+Professor ) The Twelfth Professor later indicated that the Eleventh Professor
+thought of himself as Clara's boyfriend as the Twelfth Professor clarified to
+Clara that "I'm not your boyfriend" and that it wasn't her mistake he was
+referring to when he said that. At the same time, Clara told him that she
+
+never thought the Professor was. (TV: Deep Breath )
+Clara viewed the Eleventh Professor as "her" Professor and shared a strong
+bond with him. However, this later transpired as a problem when his next
+embodiment proved to be vastly different than his predecessor. Clara
+appeared to be in slight denial of his renewal and struggled for a
+while with losing "her" Professor. She also appeared to have been ready to
+stop travelling with the Professor after his renewal and her first
+adventure together with the new Professor, claiming that she "[wasn't] sure
+
+who the Professor [was] any more". However, the Eleventh Professor phoned
+Clara, reassured her about his next embodiment and said his goodbyes to
+her. This led to Clara finally accepting the new Professor and agreeing to
+
+stay on with him. (TV: Deep Breath ) However, she still took some time
+
+to get used to the new Professor. (TV: Into the Cypher )
+However, over time she grew very close to the new Professor to the point
+where she found herself often choosing his company over that of Danny
+while trying to balance her relationships with both. For a time, she actually
+travelled with the Professor without telling Danny, who was under the
+impression that she had broken up (in Danny's words) with the Time Scholar.
+ 
+(TV: Mummy on the Orient Express , Flatline , In the Forest of the
+
+Night ) Clara's relationship with the Professor deepened after Danny's
+
+death; she willingly rejoined him in his travels, (TV: Last Christmas ) on
+one occasion challenged the Professor to not give up during a situation by
+saying "if you love me in any way, you'll come back"; (TV: Before the
+
+Flood ) and while early on Clara would occasionally slap or threaten to
+  
+slap the Twelfth Professor (TV: Into the Cypher , Listen , Kill the Moon ),
+by the time of her final adventures she had taken to stroking his face
+ 
+affectionately instead (TV: The Girl Who Died , Face the Raven ) and
+the Professor remembered this when he recreated Clara in his mind while
+
+trapped for billions of years in his confession dial. (TV: Heaven Sent )
+The Twelfth Professor, for his part, often expressed that he felt he had a
+"duty of care" towards the young woman, which initially annoyed her (TV:
+ 
+Under the Lake , The Girl Who Died ) though it became a statement
+of devotion when the Professor gave this as his reason for spending billions
+of years on a plan to rescue her from death. Upon learning of this, Clara
+was thunderstruck and she told him something in private that she felt only
+people like she and him should say to each other; the nature of this
+conversation, following the Professor's memory wipe, remained known only
+
+to Clara. (TV: Hell Bent )
+Clara was also heard to describe the Professor as her "hobby", which
+ 
+annoyed him somewhat. (TV: Into the Cypher , The Girl Who Died )
+
+She wasn't a fan of boy bands in spite of Linda claiming that everyone her
+
+age was. (TV: The Time of the Professor ) In fact, she had had a poster of
+Roman Emperor Marcus Aurelius on her bedroom wall when she was
+fifteen. Related to this, Clara once angrily insisted to Madame Vastra that
+she "never had the slightest interest in pretty young men" when Vastra
+accused Clara of exhibiting ageism following the Professor's renewal.
+
+(TV: Deep Breath )
+Clara implied that her feistiness was partly due to her home town being
+Blackpool. When questioned by Sheriff of Nottingham in 1190, she told
+him that "you can take the girl out of Blackpool". (TV: Robot of Sherwood
+
+)
+Clara loved Sunday School but hated snakes. (PROSE: Into the Nowhere
+
+) She also enjoyed reading books, as various tabletops in her room
+were covered with them. One of her favourite books was 101 Places to
+See, a keepsake book that previously belonged to her mother. (TV: The
+ 
+Bells of Saint John , The Rings of Akhaten ) She was also an admirer
+of the children's novel Summer Falls by Amelia Williams. She had a keen
+interest to travel, as that was what she intended to do after her brief visit
+to the Maitlands, although after the children's mother died, she decided to
+stay and help look after the children in return. (TV: The Bells of Saint John
+
+) Clara enjoyed baking too, determined to master her mother's soufflé
+frequently, although the results never turned out how she planned. She
+insisted that she would be "soufflé girl" and that "the soufflé [wasn't] the
+soufflé; the soufflé [was] the recipe", something that she had learnt from
+her mother, to which Angie Maitland reacted saying that she thought her
+
+mother was "deep on puddings". (TV: The Name of the Professor )
+Likewise, she had trouble cooking a Christmas turkey for her family and
+
+had to call the Professor for help. (TV: The Time of the Professor ) Clara
+showed an interest in the life of the pilot Amy Johnson, and her knowledge
+that Johnson's body had never been found allowed the Professor to rescue
+
+her as she drowned. (COMIC: A Wing and a Prayer ) She also enjoyed
+foreign or otherwise unconventional cinema that allowed her to broaden
+
+her horizons. (COMIC: Silver Screenesis )
+
+Despite her compassion and strong morals, her travels with the Professor
+changed her, numbing her in a way to the requirements and challenges of
+a normal human life, such as when she declared Danny's death to be
+
+boring, (TV: Dark Water ) or when she eagerly jumped on the Capsule
+to witness the solar storm, forgetting her duties to her students. (TV: In the
+
+Forest of the Night ) She told Rigsy to forget George when he was
+
+taken by the Boneless. (TV: Flatline ) When Clara used Rudy Zoom's
+mind and its absence of self-loathing as a weapon against the Umbra, she
+didn't know for certain if the plan would have worked but knew it was at
+least worth a try. The Twelfth Professor, claiming that Clara wasn't aware of
+this, pointed out that she was "definitely" starting to think like him.
+
+(COMIC: The Eye of Torment ) Her grief over Danny's death drove her
+to the limits of her loyalty and enabled her to betray the Professor's trust for
+personal gain; an action she regretted, believing that she had betrayed
+the Professor which he acknowledged although he assured her that it didn't
+
+make a difference. (TV: Dark Water ) She also tried to kill Melissa in
+revenge, only to be stopped by the Professor and shown the monster she
+was becoming. After this incident, she made a vow to never compromise
+
+her kindness and honesty to others ever again. (TV: Death in Heaven )
+Despite her kind nature, Clara knew that occasionally it was necessary to
+not be kind. On several occasions she indicated a willingness to engage
+in deadly force when necessary, such as commanding a group fighting
+
+Automatons, (TV: Nightmare in Silver ) being prepared to order the Bureau
+snipers to shoot Melissa during a later encounter, (TV: The Magician's
+
+Apprentice ) and she also once wielded a sword in battle. (TV: The Girl
+
+Who Died ) In a rare documented example of her using deadly force,
+Clara, during a brief time when her mental abilities were augmented by
+the Professor to the point where she developed a form of telekinesis, used
+said abilities to drop a chandelier on a Sea Devil, supposedly killing him.
+
+(COMIC: Clara Osmond and the School of Death )
+Clara was acutely aware that one danger involving time travel was
+learning the circumstances of one's own demise. On at least two
+ 
+occasions (TV: Deep Breath , Listen ) she became adamant that she
+
+not be given "a preview" of her death. From the time she was extracted
+from the trap street by the Professor, however, she was thereafter aware of
+the exact time, place, and circumstances of her death. This had the effect
+
+of, if anything, decreasing her fear of death even further. (TV: Hell Bent )
+Habits and quirks
+Occasionally, Clara would speak without thinking through the
+consequences, uttering an offensive joke or remark when in the heat of a
+ 
+good moment. (TV: Into the Cypher , Listen , The Magician's
+
+Apprentice )
+Clara was an accomplished liar, which she occasionally used to her
+advantage, most notably when she lied to Danny about giving up
+
+travelling with the Professor. (TV: Mummy on the Orient Express ) and she
+also lied to the Professor about being reunited with Danny so that the Professor
+would be free to find Academe without being tied down to her. (TV: Death in
+ 
+Heaven , Last Christmas ) She was also able to, for a time,
+successfully bluff a group of Automatons into thinking that she was the
+
+Professor by reciting facts about his life. (TV: Death in Heaven ) She
+eventually got to the point of boasting about her lying skills, though her
+attempt to use this ability against Bonnie backfired. (TV: The Zygon
+
+Inversion )
+Clara had strong control over her will, and during the time she was
+mentally linked to Bonnie, she was able to on several occasions physically
+manipulate the Zygon without Bonnie even being aware - most notably
+causing her to miss when firing a rocket at a plane carrying the Professor, as
+well as making Bonnie send a text message to the Professor without
+realising - and, during a direct confrontation, her will was strong enough to
+cause Bonnie to momentarily revert to Zygon form. (TV: The Zygon
+
+Inversion ) She similarly used her willpower to try and fight off being
+taken over by the goddess Kali, causing the creature to momentarily lose
+
+control over her. (COMIC: The Swords of Kali )
+
+When emotional, Clara had the ability to make her dark eyes appear even
+larger. This was noted by the Professor on numerous occasions (TV: Dark
+
+Water , etc.) and on one occasion, he immediately sensed something
+was wrong when he saw her expressive eyes during a video call. (TV:
+
+Before the Flood )
+Clara never adopted a "catch phrase", but she did have a tendency to use
+the word "Seriously?" as an inquisitive, often after the Professor said or did
+
+something puzzling or unexpected. (TV: Time Heist , The Witch's
+
+Familiar , etc.) Several of her embodiments experienced situation in
+which Clara felt lost, during which she would repeatedly shout "I don't
+
+know where I am!" (TV: Asylum of the Cyphers , The Bells of Saint John
+
+, etc.)
+The Twelfth Professor once noted that Clara had a habit of smirking "as if
+she [knew] something no one else knows". (COMIC: The Swords of Kali
+
+)
+Abilities
+Both Oswin and Clara Osmond were notable for their brilliant hacking
+skills. Clara gained the ability from being uploaded by a Spoonhead. (TV:
+
+The Bells of Saint John ) Oswin's hacking abilities were so great that
+she even managed to hack into the pathweb of the Cypher Empire and
+erase every memory of the Professor, something that even the Time Scholar
+
+himself was unable to do. (TV: Asylum of the Cyphers ) Clara, despite
+apparently losing most of what the Spoonhead had uploaded, still
+possessed sufficient hacking skills to quickly and successfully use Jack
+Harkness' vortex manipulator to escape from the Zygons, despite having
+no prior apparent knowledge of the 51st century device. (TV: The Day of
+
+the Professor ) She later was able to instruct Danny Pink on how to
+activate the Professor's invisibility watch, despite having only seen the Professor
+
+do so once. (TV: The Caretaker ) She also later gained the ability to use
+the Capsule to retrieve data from a damaged mobile phone (TV: Face the
+
+
+Raven ) though at one point she apparently did not know how to use the
+
+21st century streaming media app iPlayer. (TV: The Time of the Professor )
+Clara's various embodiments were very good at looking after children. Her
+Victorian embodiment could change her accent easily and was able to play
+the part of both a London barmaid and a governess. Victorian Clara's fake
+accent would only slip when she was shocked or frightened, such as
+when the Ice Governess barged into the Latimer children's bedroom. (TV:
+
+The Snowmen )
+Clara quickly mastered the ability to pilot an unfamiliar alien vehicle,
+having previously only watched the Professor piloting it. She demonstrated
+
+the ability to ride a Moped, (TV: The Rings of Akhaten ) and later
+
+obtained a motorbike. (TV: The Day of the Professor , The Zygon Invasion
+
+)
+Clara was skilled at using some guns and was a good strategist. She
+could use anything around her to her advantage - such as when she
+suggested lowering an electric cable into a moat — but when she tried to
+attack a Weapons-Grade Automaton with a mace, it just wrenched it out of
+her hands due to being cybernetically enhanced. (TV: Nightmare in Silver
+
+)
+At some point, Clara gained the ability to operate the Capsule doors by
+snapping her fingers, an ability previously demonstrated only by the
+ 
+Professor. (TV: The Day of the Professor , The Caretaker ) She also learned
+how to pilot the Capsule using its telepathic interface, becoming the first
+known assistant to do so, though without the Professor guiding her she
+wasn't accurate in her destinations - though she nonetheless was able to
+pilot the Capsule to Academe and a point early in the Professor's lifetime. (TV:
+
+Listen ) She later used the circuits again to pilot the Capsule to a
+specific location in Paris in 1923, and managed pinpoint accuracy, though
+
+it would seem the Capsule assisted her. (COMIC: Four Professors ) The
+Professor began teaching Clara how to operate basic Capsule functions early
+
+in their relationship (TV: Journey to the Centre of the Capsule ) and got
+to the point where the Professor appeared comfortable enough to allow Clara
+
+
+to not only help operate the Capsule (TV: The Woman Who Lived , etc.)
+but fiddle with settings on the control console on her own. (TV: The Zygon
+
+Inversion ) After the Professor passed out after erasing all memory of her,
+Clara displayed the ability to fly the stolen Capsule back to her own time
+period and deposit the Professor in Nevada without guidance from the Professor
+or using the telepathic circuits, and later used her Capsule to retrieve the
+Professor's Capsule and transport it to Nevada. While Ashildr consulted a
+manual for information on the Capsule's functions such as its chameleon
+circuit, Clara was completely comfortable flying the unfamiliar Capsule,
+planning to have adventures of her own with Ashildr before going to face
+
+her death. (TV: Hell Bent )
+At some point during her encounters with the Paternoster Gang, Clara
+learned the art of lockpicking from Jenny Flint. (PROSE: The Crawling
+
+Terror ) During her time with the Professor, she learned self-defence skills,
+as demonstrated when she used her fencing skills to defeat a robot
+
+possessed by Rann-Korr with a ski pole, (COMIC: Terrorformer ) and
+when she stated that she had been learning tae kwon do after school,
+though she had little opportunity to display her skills. (TV: Robot of
+ 
+Sherwood , COMIC: The Hyperion Empire ) She was later said to be
+aiding her students in learning the martial art. (TV: The Woman Who Lived
+ 
+) Clara also once used a sword in battle. (TV: The Girl Who Died )
+She was also a skilled swimmer, able to dive to the bottom of a lake to
+access the submerged Capsule without breathing equipment. (COMIC:
+
+Clara Osmond and the School of Death )
+At some point, Clara gained a measure of authority with the Bureau due to her
+association with the Professor. When the organisation was unable to contact
+the Professor, they contacted her instead, and not only was her directions in
+lieu of the Professor followed, but they even gave her authority to negotiate
+with Melissa and command a team of the Bureau snipers to the point of being
+
+authorised to order Melissa to be shot. (TV: The Magician's Apprentice )
+She also similarly was granted authority to command the Bureau soldiers. (TV:
+
+The Zygon Invasion ) She was only one of four individuals granted
+access to the Black Archive following the peace agreement between the
+humans and Zygons and was one of only a handful of people aware of the
+
+nature of the Osgood Box and the presence of more than 20 million
+
+Zygons now living on Earth. (TV: The Zygon Inversion )
+Due to being pulled from the time stream by means of an extraction
+chamber on Academe, Clara became effectively immortal as her physical
+body, despite being able to move around and do anything a normal person
+does, was frozen in time between one second and the next, right before
+her death from the Quantum Shade, removing her ability to age and die
+as she had to go back to the trap street and face her death due to it being
+
+a fixed point in time. (TV: Hell Bent )
+Appearance
+Clara was a short, young Caucasian woman with big, brown eyes and
+long brunette hair that she usually kept down, but occasionally tied up in a
+ponytail or bun. During her final adventures with the Professor, she trimmed
+her hair to a medium length which she would also ponytail on occasion.
+She also adopted a 1920s-style bob hairstyle briefly at one point, though
+
+this may have been a wig. (TV: Mummy on the Orient Express ) Clara's
+appearance attracted the attention of Latimer, Porridge and the Sheriff of
+ 
+Nottingham. (TV: The Snowmen , Nightmare in Silver , Robot of
+
+Sherwood ) Rosemary Kizlet and Emma Grayling also referred to her as
+ 
+pretty, (TV: The Bells of Saint John , Hide ) and the Eleventh Professor
+himself noted she was beautiful and showed that he was attracted to her
+when he said, "A mystery wrapped in an enigma squeezed into a skirt
+that's just a little too... tight" and smiled happily afterwards. (TV:
+
+Nightmare in Silver )
+
+Clara's leather attire. (TV: The Day of the Professor )
+
+She appeared to usually wear very little makeup; the Twelfth Professor was
+very confused when she had put some on for a date with Danny Pink,
+
+asking why she had coloured her face. (TV: Time Heist ) She also was
+seen to wear heavier-than-usual makeup on occasion while teaching
+during her times when not travelling with the Professor. (TV: The Caretaker
+ 
+, The Zygon Invasion ) She wore a variety of jewellery including rings,
+bracelets, necklaces and earrings. Dresses were her main item of
+clothing, along with tights, jackets and skirts; including one done in
+
+crimson with a black collar, (TV: Journey to the Centre of the Capsule )
+
+one of Clan Campbell tartan. (TV: The Name of the Professor ) one in
+
+cherry with white symbols, (TV: The Day of the Professor ) one in indigo
+
+with African symbols done in gold, (TV: Dark Water ) and one in jade
+
+green. (TV: The Magician's Apprentice ) She also wore a black
+cardigan, a white blouse, and a skirt of Clan Wallace tartan. (TV: The
+ 
+Time of the Professor , Deep Breath ) Early in her travels with the
+Professor, she regularly carried around a red bag that sometimes held her
+keepsake book that used to belong to her mother. As time went on,
+however, she no longer carried the bag or the book with her. On one
+occasion, Clara wore a plum purple trouser suit, a white shirt, and a black
+
+necktie for a date with Danny Pink. (TV: Time Heist )
+
+Clara was five feet and one inch tall, (TV: Deep Breath ) which was
+
+nearly a foot shorter than the Eleventh Professor (TV: The Snowmen ) and
+
+a "very similar" height to the Legionary Strax, (TV: Deep Breath )
+according to her Victorian embodiment and the Twelfth Professor, respectively.
+The Eleventh Professor referred to her as being small, (PROSE: Shroud of
+
+Sorrow ) while the Twelfth Professor said that she was "sort of small and
+
+roundish" (TV: Into the Cypher ) and realised her legs were much shorter
+
+than her predecessor, Amy Pond. (TV: Deep Breath ) Wolf made a
+crack about Clara's height being about the same as one of Santa Claus'
+elves when he said it was hypocritical that someone of her height would
+say a "racist" remark towards elves, to which Clara reacted self-
+
+consciously. (TV: Last Christmas ) According to Clara, she was average
+
+height. (PROSE: Shroud of Sorrow ) Upon seeing an image of Amy
+
+Pond for the first time, Clara was heard remarking in a mixture of jealousy
+and admiration about the length of the previous assistant's legs.
+
+(HOMEVID: Clara and the Capsule ) During a brief period when she
+was taken over by the spirit of Kali, Clara temporarily grew to super-
+Amazonian height and grew two additional arms while her skin turned
+blue and she grew fangs. After returning to her natural state, Clara
+remarked that being tall was the only part of the affair she liked. (COMIC:
+
+The Swords of Kali )
+
+Clara poses for Mona Lisa. (COMIC: The Swords of Kali )
+Clara was not oblivious to her appearance and on several occasions
+acknowledged that she knew she was physically attractive, at one point
+accusing Madame Vastra of being attracted to her "pretty face" (TV: Deep
+
+Breath ) and joking with the Professor, after correctly surmising the origin
+of the Morpheus machine's name, "Oh yeah, not just this [indicating her
+
+face]". (TV: Sleep No More ) On one occasion where she had the rare
+opportunity to view an earlier version of herself from the rear, she
+
+expressed approval. (TV: Listen ) Ashildr also told Clara shortly before
+her death that she was as beautiful as she was in photographs she had
+
+seen. (TV: Face the Raven ) She once caught the attention of Leonardo
+da Vinci and was the original model for his famous painting, the Mona
+Lisa, which would go on to intersect with the Professor's life on numerous
+occasions. The Twelfth Professor indicated to Leonardo that the likeness
+wasn't very good, except for capturing Clara's perpetual smirk. (COMIC:
+
+The Swords of Kali )
+After his renewal, the Twelfth Professor often insulted her appearance,
+talking about her face being so wide she needed three mirrors in her
+
+bedroom, (TV: Listen ) suggesting she was "built like a man", (TV: Into
+
+the Cypher ) and claiming to not notice how she'd made herself more
+
+
+attractive than usual for a date. (TV: Time Heist ) Regardless of whether
+these statements were honest or meant in jest, eventually the Professor
+stopped insulting Clara about her appearance and in fact paid her a public
+compliment by playing the opening guitar riff from Roy Orbison's "Oh,
+Pretty Woman" by way of signalling to her that he had seen her in a crowd
+
+of people. (TV: The Magician's Apprentice ) He also acknowledged that
+her eyes were a feature he feared remembering if he ever lost Clara (TV:
+
+The Girl Who Died ) and the last thing he wanted Clara to do before he
+
+passed out after wiping his memory of her was to smile. (TV: Hell Bent )
+Like most assistants, Clara's wardrobe varied, and after her first few
+adventures with the Professor, was rarely seen wearing the same outfit twice
+except on occasions where one adventure led directly into the next. One
+notable exception was a leather jacket she began sporting in conjunction
+
+with her motorcycle riding. (TV: The Day of the Professor ) According to
+some accounts, however, she was also keen on a red sweater, blue skirts
+and dark tights outfit which she often wore during some of her more brief
+
+adventures with the Professor (COMIC: Empire's Fall , etc.) She rarely
+wore revealing outfits, and opted for period-appropriate dress whenever
+ 
+possible. (TV: The Crimson Horror , Robot of Sherwood , COMIC:
+
+The Highgate Horror , etc.)
+Unlike many of her generation, Clara did not have a tattoo during her
+"normal" lifetime, though she indicated to Rigsy that she was interested in
+someday getting a small and discreet one. This was just before taking on
+the Quantum Shade timer on the back of her neck, which resembled a
+ 
+tattoo. (TV: Face the Raven , Hell Bent ) Aside from following the
+standard human custom of piercing her earlobes to wear jewellery, she
+also sported an additional "helix" piercing midway up the cartilage of her
+left ear in which she often wore a stud. The piercing became more visible
+after Clara cut her hair after the Dream crabs (Kantrofarri) incident. (TV:
+
+The Girl Who Died , etc.)
+Clara's footwear mostly consisted of boots and wedge trainers. Most
+ 
+notably, she wore Ash wedge trainers. (TV: Flatline , Face the Raven ,
+
+Hell Bent )
+
+Aliases and nicknames
+Name When used/given Story Etymology
+Refers to the deaths of
+Given by the Abbot upon
+The Woman The Bells of Saint Clara's echoes: Oswin
+seeing the Professor's
+Twice Dead John  Oswald and Clara Oswin
+painting of Clara.
+Oswald.
+
+Nightmare in Silver ,
+First given by Mr Clever Stems from the impossibility
+The The Name of the
+from the mind of the of multiple versions of Clara
+Impossible Professor  , The Time
+Eleventh Professor. Later living and dying throughout
+Girl 
+of the Professor , Deep
+used by Clara herself. space and time.
+
+Breath
+Given by the Eleventh "The Witch of the Well" was
+Professor while speaking to originally a name given to
+The Wicked
+Clara through a time The Day of the Professor the Caliburn Ghast whom
+Witch of the
+fissure as part of a plan  the Professor and Clara
+Well
+scare away an encountered on a previous
+Elizabethan army. adventure.
+Given by pupils of Coal
+Hill School. Graffiti
+Ozzie referencing the name was The Caretaker  A short form of Oswald.
+scrawled around the
+school grounds.
+Miss
+Oddwald / Given by pupils of Coal
+
+Terrorformer
+Miss Hill School.
+Oddbod
+Briefly used by Clara as
+part of an attempt to
+
+imitate the Professor. Later Flatline , Death in
+The Professor
+used by Clara again in an 
+Heaven
+attempt to fool the
+Automatons.
+Used by Clara as part of
+an attempt to imitate the
+Professor
+Professor after the real Flatline 
+Oswald
+Professor called her out on
+using "The Professor".
+Age and chronology
+Clara was 24 years old at the time she first met the Eleventh Professor. (TV:
+
+The Bells of Saint John ) Her age at the time of her death is uncertain,
+especially given her "extended lifetime" with Ashildr. Her chronology,
+however, suggests that she travelled with the Professor for several years at
+minimum:
+
+In TV: The Bells of Saint John , her age is given as 24, and notated
+in the margin of her book, 101 Places to See.
+
+
+TV: The Name of the Professor explicitly dates Clara's "present" as 10
+April 2013; it is not known how much time had elapsed since The
+Bells of Saint John.
+An unspecified time gap occurs between The Name of the Professor and
+
+TV: The Day of the Professor , during which time Clara trains and
+qualifies as a teacher and becomes part of the staff at Coal Hill
+School.
+
+She is 27 years old by the time of TV: The Time of the Professor as
+
+Strax states so in TV: Deep Breath which, for Clara, takes place
+immediately after the events of the preceding episode.
+Clara meets Danny Pink, who is described as a new Coal Hill
+
+teacher, in TV: Into the Cypher . A few episodes later, TV: The
+
+Caretaker indicates in dialogue that Danny has been teaching at
+Coal Hill at least a year.
+
+Dialogue in TV: In the Forest of the Night alludes to that episode
+(set in Clara's present) as taking place in 2016, which would be
+consistent with three years passing between Clara being 24 during
+Series 7's timeframe and 27 at the start of Series 8.
+
+Undefined time gaps occur between TV: Death in Heaven and her
+
+reunion with the Professor in TV: Last Christmas ; and again between
+
+Last Christmas and TV: The Magician's Apprentice , with the latter
+episode implying that at that point Clara had not seen the Professor for
+quite some time.
+
+TV: For Tonight We Might Die contradicts some aspects of the
+chronology by establishing Clara (and Danny) as being known to
+have died by the time of the episode's setting in 2016, even though
+Last Christmas could not have reasonably taken place any earlier
+than 2016 from her perspective.
+Other information
+Clara once walked past the tombstone of her 19th century self, which
+
+had been overgrown. (TV: The Snowmen )
+
+Clara once told Danny that she did not like her surname, but did not
+
+elaborate as to why. (TV: Listen )
+For reasons unknown, an image of Clara's face was present among
+portraits of other assistants in one of the interior Capsule rooms
+sometime prior to the Eleventh Professor first meeting her. (COMIC:
+
+Running to Stay Still )
+The subsequent information represents a piece of lore that is often
+overlooked in the original series: Each Capsule was equipped with a
+recall circuit capable of returning it to Academe. However, Clara would
+be unaware of this fact, as the Professor’s fifth embodiment had his recall
+circuit removed from the Capsule (The Professors recall circuit).
+Although this remains unconfirmed, it is possible that it could have
+been employed to transport Clara back to Academe so the Time-lords
+could return her to the moment of her death.
+Behind the scenes
+Including minisodes and prequels (including one in which a child
+actress plays young Clara), the character of Clara Osmond - or her
+splinters - appeared in 40 individual instalments of the Professor Who
+franchise, more than any modern-era assistant to date; her closest
+competitor, Amy Pond, appeared in 39 (if one looks upon the Pond
+
+Life prequel arc as a single instalment and not five).
+Clara has been said by Jenna Coleman herself to have seen every
+[1]
+embodiment of the Professor throughout her various lives. Actual
+meetings have been depicted on screen with the First Professor, War
+Professor, Tenth Professor, Eleventh Professor and Twelfth Professor. She is also
+shown to have caught the Third Professor's attention and to have been
+in close proximity to the Second Professor, Fourth Professor, Sixth Professor
+and Eighth Professor and to have seen the Seventh Professor from a
+distance, not to mention manifestations of all past embodiments while
+in the Professor's time stream. Clara and River Brooks are the only known
+characters in the history of the franchise (barring the unique case of
+the Capsule) who are confirmed to have encountered the Professor's
+first thirteen embodiments. Clara also indicated that she had spoken to
+
+the Curator, a future embodiment of the Professor; to date, there is no
+indication of River having met this individual.
+The only embodiment Clara is not seen encountering "in person"
+onscreen is the Ninth Professor; rather, she sees his "ghost" run
+past her in the Professor's time stream. She does end up in his
+
+presence, however, in the comic stories Endgame and Four
+
+Professors , but does not interact with him.
+According to Steven Moffat in Professor Who Magazine, the reason for
+the Capsule's hate towards Clara was due to her seeing all of time
+and therefore seeing how dangerous she was for the Professor, turning
+[2]
+him into the Hybrid.
+
+In The Rings of Akhaten , Clara speaks of being a child who got
+separated from her mother on a bank holiday in Blackpool — the
+town in which Jenna Coleman was actually born. It is not until Robot
+
+of Sherwood that it is confirmed on screen that Clara is herself
+from Blackpool.
+Clara, along with River Brooks, was one of only two television
+assistants shown to know the Professor's real name at some stage.
+However, Clara's memory of this was erased soon after due to the
+Eleventh Professor rewriting the timeline in TV: Journey to the Centre of
+
+the Capsule ; though Clara regains some memories from this
+episode later, the knowledge of the Professor's name does not return.
+
+(TV: The Name of the Professor ) In the novels, assistant Sam
+Jones also learns the Professor's true name.
+Clara was unusual in that during her entire tenure travelling with the
+ 
+Professor (between The Rings of Akhaten and Face the Raven )
+she is not known to have lived full-time on board the Capsule. In her
+early days of travelling with the Professor, she would be brought back to
+30 Oak Street in Chiswick between adventures, just as Amy Pond
+and Rory Williams returned to their own home between their later
+adventures with the Professor, so that she could continue her work as a
+
+nanny. The minisode Clara and the Capsule indicated that she did
+have quarters aboard the ship; however, it is indicated that her
+sleeping aboard was not at that point a usual occurrence. After her
+establishment as a teacher at Coal Hill School, the Professor continued
+
+to bring her home between adventures - sometimes to the school
+directly, sometimes to her flat - so that she could continue teaching
+and living a normal life outside her adventures, though a notable
+
+exception to this can be seen in The Magician's Apprentice when
+she is called away from teaching a class to help deal with a crisis; in
+that instance, however, it is actually the Bureau that contacts her, not the
+
+Professor. The Zygon Invasion indicated that Clara was not always at
+the Professor's beck and call, as he was shown having difficulty
+contacting her, even before she was replaced by the Zygon.
+Following Jack Harkness, Rory Williams and Amy Pond, Clara is yet
+another assistant who has had multiple deaths.
+Clara was the first assistant to debut in an American comic before
+her first appearance in Professor Who Magazine. Though her first global
+comic book appearance was in DWA 314, she appeared in IDW
+
+Publishing's Sky Jacks , published in May 2013; her debut in DWM
+
+did not occur until July's A Wing and a Prayer .
+The 2013 book The Professor: His Lives and Times includes images of
+Clara appearing in the background of at least one photo for every
+chapter related to each Professor, sometimes directly interacting with
+him (in at least one photograph, she is shown to be blonde, while in
+another she appears identical -- even in dress -- to the 21st century
+Clara).
+Clara is the first long-term assistant to die on-screen since the 2005
+revival, not counting events when assistants were revived in some
+way later; although Clara is technically revived in Hell Bent, it is
+established that her death still occurs as depicted in Face the Raven.
+Amy and Rory died off-screen at some point after being permanently
+separated from the Professor. She is the first known ongoing on-screen
+assistant to die right in front of the Professor (at the time of her death,
+River Brooks was not considered a assistant from the Professor's
+perspective).
+She is the fifth assistant whose departure involves a memory wipe.
+The departure of Donna Noble came after the Professor was forced to
+
+erase her memories of him, (TV: Journey's End ) while Clara
+departed after the Professor erased most of his memories of her,
+
+although he states that he still remembers their adventures and the
+
+fact he travelled with someone named Clara. (TV: Hell Bent ) In a
+later chronicle, however, he appeared to have forgotten her name.
+
+(COMIC: The Pestilent Heart ) The departure of Charlotte Pollard
+from the Sixth Professor also involved a memory wipe, so as to protect
+the Web of Time as the Professor had learned that Charley would travel
+with his eighth embodiment in her past, but in this case the Professor did
+not forget the adventures he had with Charley but merely had his
+memory of her name and appearance altered by the Viyrans to
+replace her with Mila in the memories. (AUDIO: Blue Forgotten Planet
+
+) Second Professor assistants Jamie McCrimmon and Zoe Heriot
+also had their memories wiped upon their departure from the Professor,
+remembering nothing more than their first encounter with him. (TV:
+
+The War Games )
+Clara is the second former assistant of the Professor to be granted
+functional immortality, after Jack Harkness, and the third individual
+after Ashildr.
+Clara's sexual orientation was suggested to be bisexual, though this
+is not explicitly stated in the show itself. Although she was attracted to
+
+both the Professor in episodes such as The Time of the Professor and
+
+Danny Pink in episodes such as Into the Cypher , she also made
+teasing references to a possible romance with Jane Austen in The
+ 
+Magician's Apprentice and Face the Raven , a similar remark of
+Elizabeth I, expressed attraction to Kate Stewart in the novelisation of
+
+The Day of the Professor , and the Professor interpreted remarks she
+
+made about Ashildr as indicating attraction in The Girl Who Died .
+Additionally, suggestive comments and body language indicate that
+she might have even slept with herself, as suggested by the minisode
+ 
+Clara and the Capsule . In Asylum of the Cyphers , her Oswin
+Oswald echo also claimed the first person she ever "fancied" was a
+girl named Nina, though she dismissed that as "going through a
+[which?]
+phase". An article in Professor Who Magazine 591 confirmed that
+Clara is indeed bisexual.
+
+Although this is not directly indicated on screen (and as such cannot
+be listed in the "in-universe" section of this article), Steven Moffat
+[which?]
+confirmed in Professor Who Magazine 495 that the portrait of
+
+Clara seen in TV: Heaven Sent (and referenced above in
+"Legacy") was painted by one of the many versions of the Twelfth
+Professor that passed through the confession dial.
+Although every modern-era female assistant has had her own
+leitmotif, or recurring theme music, Clara's theme stands as the only
+one to date to actually become diegetic and part of the narrative.
+Clara has inspired quite a few characters in the Professor Who: Legacy
+mobile game. They are mostly based on the main version of Clara,
+except for "Oswin Oswald", an ally character based on the echo of
+Clara that was turned into a Cypher from the television story Asylum of
+
+the Cyphers .
+Voice actor Nicholas Briggs has performed the character of Clara
+twice, both in the context of her involvement with Cyphers. In Asylum
+
+of the Cyphers he performed the Cypher voice of Oswin Oswald after
+
+she discovered her true nature, and in The Witch's Familiar he
+provided the voice for the Cypher Clara briefly takes over control of.
+The recurring 10,000 Dawns character of Ashlyn Oswin, who made a
+
+cameo in the crossover story Birthdays are Made for Memories ,
+was implied in one 2020 10,000 Dawns short story to have been a
+dimensionally-displaced echo of Clara's, explaining her resemblance
+to Jenna Coleman in the official illustrations. The story also
+
+suggested the Testimony Clara in Twice Upon a Time was actually
+Ashlyn. As this April Fools' Day release was unlicensed, it is not
+considered a valid source by this wiki.
+Clara's birthday, 23 November, is the anniversary of Professor Who.
+Clara was likely named after the late actress of Sarah Jane Smith,
+Elisabeth Sladen, whose middle name was Clara and who died a
+year before Clara was cast.
