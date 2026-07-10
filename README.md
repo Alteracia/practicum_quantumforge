@@ -53,7 +53,7 @@
 Для сбора данных взята вселенная Doctor WHO [Tardis](https://tardis.fandom.com/wiki/Doctor_Who_Wiki).<br> 
 Замена с помощью скрипта [rename_terms.py](/knowledge_base/rename_terms.py) на основе [словаря замен](/knowledge_base/terms_map.json).
 ### Результат
-37 .md файлов из `/knowledge_base`
+37 .md файлов в `/knowledge_base`
 
 ## Задание 3 - Индексация и Эмбеддинг
 ### Модель
@@ -116,3 +116,12 @@ Single query (k=5)
 |--------------|--------------------------------------------------------------------------------------------------------------------|
 | faiss.index  | Flat inner-product FAISS index, 4194 vectors × 1024 dims (~16.4 MB)                                                |
 | metadata.pkl | Сопутствующее сопоставление метаданных row id → {source, title, chunk_id, text, char_start, char_end, …} (~2.7 MB) |
+
+## Задание 4 - Реализация RAG-бота
+```shell
+pip install openai
+```
+```powershell
+$env:OPENAI_API_KEY = "sk-..."
+python rag_bot.py
+```
