@@ -59,6 +59,10 @@ import traceback
 from pathlib import Path
 from typing import Any, Dict, List, Optional, Tuple
 
+# Shared prompt-injection security layer (ProtectAI DeBERTa classifier).
+# The classifier itself loads lazily, so this import is cheap.
+import security
+
 # --------------------------------------------------------------------------- #
 # Configuration  (paths / model / env-driven LLM config — same as build_index.py)
 # --------------------------------------------------------------------------- #
@@ -426,12 +430,48 @@ def answer_query(
     k: int = TOP_K,
     use_cot: bool = True,
 ) -> Tuple[str, List[Tuple[float, Dict[str, Any]]]]:
-    """Run a full RAG turn: retrieve -> build context -> build prompt -> LLM.
+    """Run a full RAG turn: check query -> retrieve -> filter chunks -> build
+    context -> build prompt -> LLM.
 
-    Returns ``(answer_text, results)`` where ``results`` is the retrieved
-    ``(score, chunk)`` list (kept so ``/sources`` can re-print it).
+    Two prompt-injection security checkpoints are applied here:
+      * the user ``query`` is blocked *before* it is embedded or sent to the LLM;
+      * each retrieved chunk is scanned *before* it is assembled into the LLM
+        prompt, and any unsafe chunk is dropped.
+
+    Returns ``(answer_text, results)`` where ``results`` is the (already
+    filtered) retrieved ``(score, chunk)`` list (kept so ``/sources`` can
+    re-print it). For a blocked query, ``results`` is empty and ``answer_text``
+    is a security refusal message.
     """
+    # --- Change 2: prompt-injection security check on the user query ------- #
+    # The query must be screened BEFORE it is embedded (retrieval) and BEFORE
+    # it reaches the LLM. Blocked queries get a clear refusal, not an answer.
+    if security.is_unsafe(query):
+        log(f"[security] WARNING: blocked a prompt-injection query "
+            f"(preview={query.strip()[:80]!r}).")
+        refusal = (
+            "I'm sorry, but I can't process that request. Your query was "
+            "flagged as a potential prompt-injection attack and has been "
+            "blocked for security reasons. Please rephrase your question."
+        )
+        return refusal, []
+    # --- end query security check ----------------------------------------- #
+
     results = retrieve(model, index, metadata, query, k=k)
+
+    # --- Change 3: filter unsafe retrieved chunks ------------------------- #
+    # Drop any retrieved chunk flagged as a prompt injection BEFORE it is
+    # formatted into the LLM prompt, so only safe context reaches the model.
+    before = len(results)
+    results = security.filter_unsafe_results(
+        results, threshold=security.DEFAULT_THRESHOLD
+    )
+    removed = before - len(results)
+    if removed:
+        log(f"[security] Removed {removed} unsafe retrieved chunk(s); "
+            f"{len(results)} safe chunk(s) will be sent to the LLM.")
+    # --- end chunk filter ------------------------------------------------- #
+
     context_str = build_context(results)
     messages = build_messages(query, context_str, use_cot=use_cot)
     answer = call_llm(messages)

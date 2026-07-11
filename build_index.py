@@ -43,6 +43,10 @@ import traceback
 from pathlib import Path
 from typing import Any, Dict, List, Optional, Tuple
 
+# Shared prompt-injection security layer (ProtectAI DeBERTa classifier).
+# The classifier itself loads lazily, so this import is cheap.
+import security
+
 # --------------------------------------------------------------------------- #
 # Configuration
 # --------------------------------------------------------------------------- #
@@ -481,6 +485,24 @@ def build(faiss: Any, SentenceTransformer: Any, splitter_cls: Any,
         length_function=len,
     )
     chunks = chunk_documents(documents, splitter)
+
+    # --- Change 1: prompt-injection security filter ------------------------ #
+    # Scan every chunk with the ProtectAI classifier and drop any detected as
+    # a prompt-injection attack so unsafe content never enters the FAISS index.
+    section("Security check — filtering prompt-injection chunks")
+    log(f"[security] Scanning {len(chunks)} chunk(s) with the ProtectAI "
+        f"prompt-injection classifier '{security.INJECTION_MODEL_ID}' ...")
+    safe_chunks = security.filter_unsafe_chunks(
+        chunks, threshold=security.DEFAULT_THRESHOLD
+    )
+    rejected = len(chunks) - len(safe_chunks)
+    log(f"[security] Rejected {rejected} chunk(s) as prompt injection; "
+        f"{len(safe_chunks)} safe chunk(s) will be indexed.")
+    chunks = safe_chunks
+    if not chunks:
+        log("[security] WARNING: no safe chunks remain after filtering — "
+            "the resulting index will be empty.")
+    # --- end security filter ----------------------------------------------- #
 
     model = load_embedder(SentenceTransformer, device=device)
     embeddings = embed_texts(model, [c["text"] for c in chunks], batch_size=batch_size)
