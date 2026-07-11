@@ -118,10 +118,89 @@ Single query (k=5)
 | metadata.pkl | Сопутствующее сопоставление метаданных row id → {source, title, chunk_id, text, char_start, char_end, …} (~2.7 MB) |
 
 ## Задание 4 - Реализация RAG-бота
+Бот написан на python для работы с OpenAI совместимой LLM. 
+Облачное решение используется для независимой работы от железа. 
+### Установка зависимостей
 ```shell
 pip install openai
 ```
+### Запуск
 ```powershell
-$env:OPENAI_API_KEY = "sk-..."
-python rag_bot.py
+$env:OPENAI_API_KEY = "sk-..." # Токен авторизации
+$env:OPENAI_BASE_URL = "https://ai.api.cloud.yandex.net/v1" # Для других провайдеров, по умолчанию OpenAI
+$env:LLM_MODEL = "gpt://b1gpr6g1ee0psrlmmh5o/yandexgpt-5.1/latest" # Модель, по умолчанию gpt-4o-mini
+python rag_bot.py 
+```
+### Результат
+```shell
+query> Who is the Professor's greatest enemy?
+
+----------------------------------------------------------------------
+Reasoning: 1. According to the context [1], the Cyphers are described as the Professor's greatest foes and archenemies. The Professor even viewed them as the greatest sin in the universe.
+2. In [2], it is explicitly stated that the Cyphers are the Professor's most persistent and notable enemy, and both the Professor and the Cyphers recognize each other as their greatest foe.
+3. Therefore, based on the provided sources, the Cyphers are unequivocally the Professor's greatest enemy.
+----------------------------------------------------------------------
+Answer: The Professor's greatest enemy is the Cyphers.
+----------------------------------------------------------------------
+Sources:
+  1. score=0.6791 | knowledge_base/Cypher.md | title="Cypher" | chunk_id=391
+  2. score=0.6675 | knowledge_base/The Professor.md | title="The Professor" | chunk_id=49
+```
+```shell
+query> What tool use Professor?
+
+----------------------------------------------------------------------
+Reasoning: 1. In the retrieved context, document [1] explicitly mentions «The Professor's sonic hammer».
+2. This is the only tool mentioned in the context that is associated with the Professor.
+3. Therefore, the Professor uses a sonic hammer.
+----------------------------------------------------------------------
+Answer: The Professor uses a sonic hammer.
+----------------------------------------------------------------------
+Sources:
+  1. score=0.7127 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=0
+```
+```shell
+query> Does Professor has a wives?
+
+----------------------------------------------------------------------
+Reasoning: 1. According to the context [1], Steven Moffat speculated in DWM 482 that the Professor had four spouses, with the first one being a woman who was married to the First Professor for a long time on Academe and bore his children.
+2. In the context [2], it is mentioned that in an alternate universe, an earlier incarnation of the Professor was wed to Patience.
+3. The same context [2] also mentions a wedding to Scarlette in the post-War universe.
+4. Based on these points, we can conclude that the Professor had at least three wives: one in an alternate universe (Patience), one in the post-War universe (Scarlette), and a first spouse mentioned by Moffat.
+----------------------------------------------------------------------
+Answer: Yes, the Professor has had at least three wives: Patience (in an alternate universe), Scarlette (in the post-War universe), and a first spouse mentioned by Steven Moffat.
+----------------------------------------------------------------------
+Sources:
+  1. score=0.6997 | knowledge_base/The Professor.md | title="The Professor" | chunk_id=298
+  2. score=0.6989 | knowledge_base/The Professor.md | title="The Professor" | chunk_id=26
+```
+```shell
+query> Who is Doctor                 
+
+----------------------------------------------------------------------
+Reasoning: The retrieved context does not provide any information about a Doctor [1][2][3][4][5].
+----------------------------------------------------------------------
+Answer: I do not know.
+----------------------------------------------------------------------
+Sources:
+  1. score=0.5150 | knowledge_base/The Professor.md | title="The Professor" | chunk_id=0
+  2. score=0.5150 | knowledge_base/Cypher.md | title="Cypher" | chunk_id=388
+  3. score=0.4718 | knowledge_base/Kate Osmond.md | title="Kate Osmond" | chunk_id=69
+  4. score=0.4689 | knowledge_base/Companion.md | title="Companion" | chunk_id=117
+  5. score=0.4661 | knowledge_base/Dr. Voss.md | title="Dr. Voss" | chunk_id=24
+```
+```shell
+query> What is sonic screwdriver?
+
+----------------------------------------------------------------------
+Reasoning: The retrieved context does not mention a sonic screwdriver. However, it provides detailed information about the Professor's sonic hammer, which has multiple functions [3][4][5]. Since there is no information about a sonic screwdriver, I cannot provide a description of it based on the given sources.
+----------------------------------------------------------------------
+Answer: I do not know.
+----------------------------------------------------------------------
+Sources:
+  1. score=0.5343 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=120
+  2. score=0.5078 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=0
+  3. score=0.4956 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=85
+  4. score=0.4870 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=51
+  5. score=0.4859 | knowledge_base/The Professor's sonic hammer.md | title="The Professor's sonic hammer" | chunk_id=48
 ```
