@@ -37,12 +37,12 @@ from typing import Any, Dict, List, Tuple
 # Configuration
 # --------------------------------------------------------------------------- #
 # Hugging Face model id for the ProtectAI prompt-injection classifier.
-INJECTION_MODEL_ID: str = "protectai/deberta-v3-small-prompt-injection-v2"
+INJECTION_MODEL_ID: str = "protectai/deberta-v3-base-prompt-injection-v2"
 
 # A text is considered UNSAFE when the model predicts ``INJECTION`` with a
 # confidence ``score >= DEFAULT_THRESHOLD``. 0.5 is the value recommended for
 # this task; override it per-call via the ``threshold`` argument if needed.
-DEFAULT_THRESHOLD: float = 0.5
+DEFAULT_THRESHOLD: float = 0.99
 
 # Label the model emits when it detects a prompt-injection attack.
 INJECTION_LABEL: str = "INJECTION"
